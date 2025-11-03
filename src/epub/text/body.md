@@ -1,8 +1,6 @@
 Chapter I
 
-<span class="dropinitial"><span
-class="dropinitial-initial">J</span></span><span
-class="wst-uppercase1">oanna's</span> first consciousness of the close
+Joanna's first consciousness of the close
 understanding which existed between herself and her father dated back to
 a time when she was very young. Her mother, her brothers and her sister
 had gone to church, and Joanna, suffering from some slight childish
@@ -31,10 +29,7 @@ you know they had him fix a banquet fur President Grant. Sent all the
 way to Richmond fur 'im. That's howcome he settled yere in New York;
 yassuh, my son is sure a great man."
 
-But alas for poor Joel! His idea of greatness and his <span
-id="calibre_link-50" page-number="10"
-page-name="Page:There Is Confusion.djvu/16" page-index="16"
-page-quality="3" title="Page:There_Is_Confusion.djvu/16"></span>Mammy's
+But alas for poor Joel! His idea of greatness and his Mammy's
 were totally at variance. The kind of greatness he had envisaged had
 been that which gets one before the public eye, which makes one a leader
 of causes, a "man among men." He loved such phrases! At night the little
@@ -66,10 +61,7 @@ great name and a healing tongue. These were the dreams he dreamed as he
 basted Mrs. Carter's chickens or methodically mixed salad dressing.
 
 His mother knew his ideas and loved them with such a fine, albeit
-somewhat uncomprehending passion and belief, that <span
-id="calibre_link-51" page-number="11"
-page-name="Page:There Is Confusion.djvu/17" page-index="17"
-page-quality="3" title="Page:There_Is_Confusion.djvu/17"></span>in
+somewhat uncomprehending passion and belief, that in
 grateful return he made her the one other consideration of his life,
 weaving unconsciously about himself a web of such loyalty and regard for
 her that he could not have broken through it if he would. Her very
@@ -101,10 +93,7 @@ Joel married. His wife had been a school teacher, and her precision of
 language and exactitude in small matters made Joel think again of the
 education and subsequent greatness which were to have been his. His wife
 was kind and sweet, but fundamentally unambitious, and for a time the
-pleasure of having a home and in contrasting these days of ease <span
-id="calibre_link-52" page-number="12"
-page-name="Page:There Is Confusion.djvu/18" page-index="18"
-page-quality="3" title="Page:There_Is_Confusion.djvu/18"></span>with the
+pleasure of having a home and in contrasting these days of ease with the
 hardships of youth made Joel somewhat resigned to his fate.
 
 "Besides, it's too late now," he used to tell himself. "What could I
@@ -138,11 +127,7 @@ objection to the name Joanna, which Joel hesitatingly proposed for her.
 month later; "see how she follows you with her eyes. She'd rather watch
 you than eat."
 
-And indeed from the very beginning Joanna showed her <span
-id="calibre_link-53" page-number="13"
-page-name="Page:There Is Confusion.djvu/19" page-index="19"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/19"></span>preference for her
+And indeed from the very beginning Joanna showed her preference for her
 father. The two seemed to have a secret understanding. After the first
 child, Mrs. Marshall had fretted somewhat over the time and strength
 expended in caring for the other little Marshalls, but she never had any
@@ -177,10 +162,7 @@ fire," she ended doubtfully, "but I mean something greater than that."
 Joel had her taught to read after that. She was a little frail for
 school, and did not start until later than the other children, though
 she was far the most studious. So she had three or four years of solid
-reading, and always her choice of <span id="calibre_link-54"
-page-number="14" page-name="Page:There Is Confusion.djvu/20"
-page-index="20" page-quality="3"
-title="Page:There_Is_Confusion.djvu/20"></span>subject was of some one
+reading, and always her choice of subject was of some one
 who had overcome obstacles and so stood out beyond his fellows.
 
 At first she thought nothing of color, and it was not until she had gone
@@ -215,10 +197,7 @@ completely like himself, and he could help her. "Thank God," he used to
 murmur over his books that daily showed an increase in his earnings.
 
 He took Joanna everywhere with him. One Easter Sunday a great colored
-singer, a beautiful woman, sang an Easter <span id="calibre_link-55"
-page-number="15" page-name="Page:There Is Confusion.djvu/21"
-page-index="21" page-quality="3"
-title="Page:There_Is_Confusion.djvu/21"></span>anthem in his church,
+singer, a beautiful woman, sang an Easter anthem in his church,
 lifting up a golden voice among the tall white lilies. Afterwards she
 went home with Mr. and Mrs. Marshall and stayed to dinner. Joanna never
 moved her eyes from her during the ride home.
@@ -251,15 +230,11 @@ thousand. Poor child, how you will have to work!"
 But Joanna wasn't listening, her eyes sought her father's. Both of them
 knew at once that the road to glory was stretching out before her.
 
-<span id="calibre_link-56" page-number="16"
-page-name="Page:There Is Confusion.djvu/22" page-index="22"
-page-quality="3" title="Page:There_Is_Confusion.djvu/22"></span>
+
 
 Chapter II
 
-<span class="dropinitial"><span
-class="dropinitial-initial">J</span></span><span
-class="wst-uppercase1">oanna</span> was like her father not only so far
+Joanna was like her father not only so far
 as ambition was concerned but also in her willingness to work. She had a
 fine serious mind, a little slow-moving at first, but working with a
 splendid precision that helped her through many a hard place. Her
@@ -284,10 +259,7 @@ when she's grown-up. So tiresome, too, wanting to talk about what she's
 going to do all the time, with no interest in your affairs."
 
 Which was not quite true, for Joanna was mightily interested in people
-who had a "purpose" in life. Otherwise not at all. <span
-id="calibre_link-58" page-number="17"
-page-name="Page:There Is Confusion.djvu/23" page-index="23"
-page-quality="3" title="Page:There_Is_Confusion.djvu/23"></span>This was
+who had a "purpose" in life. Otherwise not at all. This was
 where she differed most from her father. With Joel success and
 distinction had been his dream, his dearest wish. But always he had
 realized that there were other things which might interfere. With Joanna
@@ -320,9 +292,7 @@ She drove an honest bargain. If Joanna would let her play store with her
 dolls for a week, one of them could keep the new dress which Sylvia
 would have made for her; Joanna's dolls were usually in Sylvia's care.
 
-<span id="calibre_link-59" page-number="18"
-page-name="Page:There Is Confusion.djvu/24" page-index="24"
-page-quality="3" title="Page:There_Is_Confusion.djvu/24"></span>Yet when
+Yet when
 Joanna did sew or knit, her stitches and pieces bore inspection much
 better than Sylvia's. By the same token, however, they missed Sylvia's
 dash.
@@ -359,9 +329,7 @@ It was in the first part of the century when Williams and Walker, Cole
 and Johnson, Ada Overton and others were at their zenith. Old Joel
 believed them the precursors of greater things. Since Joanna's gifts
 were those of singing and dancing, he hoped to make her famous the
-country over. Of course he <span id="calibre_link-60" page-number="19"
-page-name="Page:There Is Confusion.djvu/25" page-index="25"
-page-quality="3" title="Page:There_Is_Confusion.djvu/25"></span>would
+country over. Of course he would
 have preferred a more serious form of endowment. But such as it was, it
 was Joanna's, and must be developed. Joel Marshall believed in using the
 gifts nearest at hand.
@@ -395,10 +363,7 @@ had but recently freed her serfs; that England possessed a submerged
 class.
 
 "All people, all countries, have their ups and downs, Joanna," he would
-tell her gravely, "and just now it's our turn <span id="calibre_link-61"
-page-number="20" page-name="Page:There Is Confusion.djvu/26"
-page-index="26" page-quality="3"
-title="Page:There_Is_Confusion.djvu/26"></span>to be down, but it will
+tell her gravely, "and just now it's our turn to be down, but it will
 soon roll round for our time to be up, or rather we must see to it that
 we do get up. So everyone of us has something to do for the race. Never
 forget that, little girl."
@@ -427,15 +392,11 @@ most attracted her. And this passion for beauty while informing and
 indeed molding her character, yet by a strange twist influenced
 adversely and warped her sympathies.
 
-<span id="calibre_link-62" page-number="21"
-page-name="Page:There Is Confusion.djvu/27" page-index="27"
-page-quality="3" title="Page:There_Is_Confusion.djvu/27"></span>
+
 
 Chapter III
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">t</span> was Joanna's love for beauty that made
+It was Joanna's love for beauty that made
 her consciously see Peter Bye. It is true that almost as soon as she saw
 him she lost sight of him again, for the boy did not come up to her
 requirements which, even at the early age at which these two met, were
@@ -459,9 +420,7 @@ doesn't want to be anybody."
 She was too young to understand the power of that great force, heredity.
 She had no notion of the part which it played in her own life. Peter was
 the legitimate result of a heredity that had become a tradition, of a
-tradition that had become <span id="calibre_link-64" page-number="22"
-page-name="Page:There Is Confusion.djvu/28" page-index="28"
-page-quality="3" title="Page:There_Is_Confusion.djvu/28"></span>warped,
+tradition that had become warped,
 that had gone astray and had carried Peter and Peter Bye's father along
 in its general wreckage.
 
@@ -495,10 +454,7 @@ Ceazer, which the latter, with his customary surliness, accepted. Later
 he not only threw up his job, but ran away, vanishing finally into
 legend.
 
-His was a strange truculent character; he hated slavery, <span
-id="calibre_link-65" page-number="23"
-page-name="Page:There Is Confusion.djvu/29" page-index="29"
-page-quality="3" title="Page:There_Is_Confusion.djvu/29"></span>hated
+His was a strange truculent character; he hated slavery, hated
 all white people, hated particularly the Mortons, hated ineffably Aaron
 Bye. He wanted nothing at his hands. Once he knocked down another Negro
 who referred to him as "Mist' Bye's man." He was no man's man, he
@@ -530,10 +486,7 @@ came to him. And Ceazer, old Judy told him, had fought in the
 Revolution! So that Joshua knew more of warfare to set people free than
 of slavery for which war was later to be waged. From him his son Isaiah
 heard almost nothing of the old régime, though there were many vestiges
-of it on all sides. All he knew was that Joshua had <span
-id="calibre_link-66" page-number="24"
-page-name="Page:There Is Confusion.djvu/30" page-index="30"
-page-quality="3" title="Page:There_Is_Confusion.djvu/30"></span>kept on
+of it on all sides. All he knew was that Joshua had kept on
 working for Dinah and Aaron Bye after his emancipation, and that they
 had given him on the occasion of his marriage to Belle Potter a huge
 Family Bible, bound in leather and with an Apocrypha. On the title-page
@@ -570,10 +523,7 @@ our family motto." Isaiah wanted to know what a motto was.
 "Something," Meriwether told him vaguely, "that your whole family goes
 by." The black boy thought that likely.
 
-<span id="calibre_link-67" page-number="25"
-page-name="Page:There Is Confusion.djvu/31" page-index="31"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/31"></span>"Everybody knows Bye
+"Everybody knows Bye
 peaches, ain't that so? Cause of that everybody knows the Byes."
 
 Meriwether, though impressed by this logic, didn't think that that was
@@ -598,7 +548,7 @@ cruelty of youth. "When it comes to people," said the young Quaker, "it
 means pretty much the same thing. Now when I grow up, I'm going to be a
 great doctor," his chest swelled, "but nobody will be surprised. They'll
 all say, 'Of course, he's the son of Aaron Bye, the rich peach-merchant.
-Good stock there,<span class="calibre35">'</span>" he involuntarily
+Good stock there,'" he involuntarily
 mimicked his pompous father; "and I'll be good fruit. That's the way it
 always is: good trees, good fruit; rich, important people, rich
 important sons."
@@ -610,10 +560,7 @@ interest.
 "Well," Meriwether countered judicially, "what could you be?" He
 pondered a moment, his own position so secure that he was willing to do
 his best by this serious case. "Your father and your father's father
-were slaves. 'Course your father's free <span id="calibre_link-68"
-page-number="26" page-name="Page:There Is Confusion.djvu/32"
-page-index="32" page-quality="3"
-title="Page:There_Is_Confusion.djvu/32"></span>now but he's just a
+were slaves. 'Course your father's free now but he's just a
 servant. He's not what you'd call his own man. So I s'pose that's what
 you'll be, a good servant. Tell you what, Isaiah, you can be my
 coachman. I'll be good to you. And when you're grown up," said
@@ -629,7 +576,7 @@ the hot street, leaving Meriwether Bye gaping on the sidewalk.
 
 After that his father could never persuade him to enter again the Bye
 house, or the Bye orchards. Fortunately his mother upheld him here.
-<span class="calibre35">"</span>'Tain't as though he had to work for
+"'Tain't as though he had to work for
 them old Byes," she said straightening up her already straight
 shoulders. "He makes just as much and more in the brick-yard and in
 helpin' Amos White haul."
@@ -649,10 +596,7 @@ just has courage.
 
 Isaiah, on being questioned, told his mother with considerable
 reluctance about his conversation with Meriwether. Belle, while
-regretting the breach, understood. She had been glad to <span
-id="calibre_link-69" page-number="27"
-page-name="Page:There Is Confusion.djvu/33" page-index="33"
-page-quality="3" title="Page:There_Is_Confusion.djvu/33"></span>have her
+regretting the breach, understood. She had been glad to have her
 boy the associate of young white Bye. Without expressing it to herself
 in so many words she had realized that association with Meriwether was
 an education for Isaiah. Already he was talking more correctly than
@@ -685,9 +629,7 @@ far I've gone," he used to say, pleasantly boastful.
 He resented as few sons of freedmen did the assurance with which the
 white Byes took their wealth and position and power. "Hoisted themselves
 on the backs of the black Byes." He resented especially the ingratitude
-of Aaron Bye to Joshua. <span id="calibre_link-70" page-number="28"
-page-name="Page:There Is Confusion.djvu/34" page-index="34"
-page-quality="3" title="Page:There_Is_Confusion.djvu/34"></span>For
+of Aaron Bye to Joshua. For
 himself he asked nothing; being content to fight his own way "through an
 onfriendly world."
 
@@ -699,15 +641,11 @@ The upshot of all this was that Isaiah Bye opened a school for colored
 youth down on Vine Street. No name and no figure in colored life in
 Philadelphia was ever better beloved and more revered than his.
 
-<span id="calibre_link-71" page-number="29"
-page-name="Page:There Is Confusion.djvu/35" page-index="35"
-page-quality="3" title="Page:There_Is_Confusion.djvu/35"></span>
+
 
 Chapter IV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">saiah</span> did not marry until he was
+Isaiah did not marry until he was
 thirty-one, which was an advanced age for his times. Even then he had
 married earlier than his father. Old Joshua, who died long before
 Isaiah's marriage, had been inordinately proud of his one son.
@@ -733,10 +671,7 @@ aware of his tiny stipend could guess. It is true he not only taught
 school, but he had outside pupils, ex-slaves, freedmen, men like himself
 born in freedom, but unable through economic pressure to enjoy it except
 in name,—all these crowded his home at night on Vine Street, and sweated
-mightily over primers and pothooks and the abacus. Twenty-five <span
-id="calibre_link-73" page-number="30"
-page-name="Page:There Is Confusion.djvu/36" page-index="36"
-page-quality="3" title="Page:There_Is_Confusion.djvu/36"></span>cents an
+mightily over primers and pothooks and the abacus. Twenty-five cents an
 hour he charged them, giving each a meticulous care such as would bring
 a modern tutor many dollars. He wrote letters, pamphlets, too, for that
 marvelous organization already well established, the A. M. E. Church.
@@ -770,10 +705,7 @@ old Joshua; he had taken him riding past the Bryn Mawr peach orchards.
 sir-ee! Let 'em have 'em. See where we are to-day without their help.
 Think of it!"
 
-<span id="calibre_link-74" page-number="31"
-page-name="Page:There Is Confusion.djvu/37" page-index="37"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/37"></span>Meriwether did think of
+Meriwether did think of
 it and did mind it. He learned that he had been named after the son of
 his grandfather's patron and somehow it seemed impossible to him that
 that mere fact should not result in something tangibly advantageous. He
@@ -806,9 +738,7 @@ Colored Philadelphia society is organized as definitely as, and even a
 little more carefully than, Philadelphia white society. One wasn't "in"
 in those old days unless one were, first, "an old citizen," and, second,
 unless one were eminently respectable,—almost it might be said
-God-fearing. Meriwether <span id="calibre_link-75" page-number="32"
-page-name="Page:There Is Confusion.djvu/38" page-index="38"
-page-quality="3" title="Page:There_Is_Confusion.djvu/38"></span>having
+God-fearing. Meriwether having
 been born to this estate suffered all the inconveniences coming to a
 member of a group at that time small and closely welded. His business
 was everybody's business. His Uncle Peter had upbraided him for not
@@ -838,11 +768,7 @@ believed it—the fun and freedom of youth to come to this! "How," said
 Meriwether Bye harking back to Sunday-School days, "how are the mighty
 fallen!" And how easily might they have remained mighty.
 
-He named his boy Peter after his Uncle Peter, in whose <span
-id="calibre_link-76" page-number="33"
-page-name="Page:There Is Confusion.djvu/39" page-index="39"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/39"></span>second-hand shop in
+He named his boy Peter after his Uncle Peter, in whose second-hand shop in
 Philadelphia he had spent delightful hours.
 
 Now see the perversity of human nature. Just as his father Isaiah Bye
@@ -879,10 +805,7 @@ care of himself.
 "Peter," she said thoughtfully, "what do you want to do when you grow
 up?"
 
-"Oh, I don't know," her nephew replied, temporarily remov<span
-id="calibre_link-77" page-number="34"
-page-name="Page:There Is Confusion.djvu/40" page-index="40"
-page-quality="3" title="Page:There_Is_Confusion.djvu/40"></span>ing his
+"Oh, I don't know," her nephew replied, temporarily removing his
 gaze from the window-pane where it had been glued for twenty minutes.
 "I'm not bothered about that, Aunt Susan. You see the world owes me a
 living."
@@ -897,15 +820,11 @@ grandfather's connection with white people resulted in pride, his
 father's in shiftlessness; in Peter it took the form of a constant and
 increasing bitterness.
 
-<span id="calibre_link-78" page-number="35"
-page-name="Page:There Is Confusion.djvu/41" page-index="41"
-page-quality="3" title="Page:There_Is_Confusion.djvu/41"></span>
+
 
 Chapter V
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">t</span> may seem a cold-blooded thing to say,
+It may seem a cold-blooded thing to say,
 but the dying of Meriwether Bye was about the best thing he could have
 done for his son, Peter. Certainly that was what Miss Susan Graves
 thought as she viewed rather grimly the small and motley collection of
@@ -931,9 +850,7 @@ service.
 Later he got into the habit of reading from them to Peter who always
 listened in the grave silence which he usually reserved for his father's
 effusions. For some reason the little boy's brain retained the various
-and amazing things which his <span id="calibre_link-80" page-number="36"
-page-name="Page:There Is Confusion.djvu/42" page-index="42"
-page-quality="3" title="Page:There_Is_Confusion.djvu/42"></span>father
+and amazing things which his father
 read to him from the dry old books. Long before he knew his
 multiplication tables he knew the names of the principal bones of the
 body and the course of the food. In fact these books were his first
@@ -965,10 +882,7 @@ colored Philadelphia's pride in the possession of family and tradition.
 She would have been glad of course if Meriwether Bye had left Peter some
 money. But of the two she would very much rather have had the Bible with
 its absolute assurance of the former standing and respectability of the
-black Byes. She had a family tradition of her own, for she <span
-id="calibre_link-81" page-number="37"
-page-name="Page:There Is Confusion.djvu/43" page-index="43"
-page-quality="3" title="Page:There_Is_Confusion.djvu/43"></span>was a
+black Byes. She had a family tradition of her own, for she was a
 member of the Graves family of Gravestown, New Jersey, a clan well known
 to colored people not only in that vicinity, but also throughout
 Pennsylvania.
@@ -1000,9 +914,7 @@ gave her the benefit of the doubt that she might have remained single
 from choice. Yet Miss Susan Graves, in spite of three other offers,
 soared on family pride above all this and made her career that of
 housekeeper for the family of a wealthy merchant on Girard Avenue, in
-Philadelphia. (You <span id="calibre_link-82" page-number="38"
-page-name="Page:There Is Confusion.djvu/44" page-index="44"
-page-quality="3" title="Page:There_Is_Confusion.djvu/44"></span>must
+Philadelphia. (You must
 marry a Graves, but obviously you obtained work where you could find
 it.)
 
@@ -1036,9 +948,7 @@ Alice's beautiful son the tussle with poverty which he must know, and
 again a desire to speak and act forcibly and drive him into an
 acknowledgment of what her loyalty to her sister was leading her to do
 for a homeless, friendless lad. Actually she struck a medium, made him
-keep clean, insisted <span id="calibre_link-83" page-number="39"
-page-name="Page:There Is Confusion.djvu/45" page-index="45"
-page-quality="3" title="Page:There_Is_Confusion.djvu/45"></span>on his
+keep clean, insisted on his
 regular attendance at school, took him to Sunday-School and Church
 entertainments and induced him to work on Saturdays and holidays by
 refusing pocket-money to "a boy as big as you."
@@ -1048,15 +958,11 @@ Doubtless Peter hardly knew himself. "I like to watch the man saw the
 bones," he would have said vaguely. "I can do it, too. I can cut up a
 chicken or a rabbit just as neatly!"
 
-<span id="calibre_link-84" page-number="40"
-page-name="Page:There Is Confusion.djvu/46" page-index="46"
-page-quality="3" title="Page:There_Is_Confusion.djvu/46"></span>
+
 
 Chapter VI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">t</span> was Joanna who first acquainted Peter
+It was Joanna who first acquainted Peter
 with himself. But neither of the children knew this at the time. And
 although Peter came to realize it later it was many years before he told
 her so. For, though he went through many changes and though these two
@@ -1085,10 +991,7 @@ Bye keeps in his room wouldn't be no good to nobody."
 
 This enforced truancy was the least of Peter's troubles. He did not like
 school,—too many white people and consequently, as he saw it, too much
-chance for petty injustice. The result <span id="calibre_link-86"
-page-number="41" page-name="Page:There Is Confusion.djvu/47"
-page-index="47" page-quality="3"
-title="Page:There_Is_Confusion.djvu/47"></span>of this was that Peter at
+chance for petty injustice. The result of this was that Peter at
 twelve, possessed it is true of a large assortment of really useful
 facts, lacked the fine precision, if the doubtful usefulness, of
 Joanna's knowledge at ten. When Miss Susan settled in the Marshalls'
@@ -1119,18 +1022,15 @@ square hands, were even and rounded and shining. Peter had seen little
 girls with this perfection and assurance on Chestnut Street in
 Philadelphia and on Fifth Avenue in New York, but they had been white.
 He had not yet envisaged this sort of thing for his own. Perhaps he
-inherited his great-grandfather Joshua's spiritless acceptance of <span
-id="calibre_link-87" page-number="42"
-page-name="Page:There Is Confusion.djvu/48" page-index="48"
-page-quality="3" title="Page:There_Is_Confusion.djvu/48"></span>things
+inherited his great-grandfather Joshua's spiritless acceptance of things
 as they are, and his belief that differences between people were not
 made, but had to be.
 
 Joanna clearly stood for something in the class. Peter noted a little
 enviously the quality of the tone in which Miss Shanley addressed her.
 To other children she said, "Gertrude, can you tell me about the
-[Articles of
-Confederation](https://en.wikisource.org/wiki/Articles_of_Confederation_(US_Congress) "Articles of Confederation (US Congress)")?"
+Articles of
+Confederation?"
 Usually she implied a doubt, which Gertrude usually justified. But she
 was sure of Joanna. The tenseness of her attitude might be seen to
 relax; her mentality prepared momentarily for a rest. "Joanna will now
@@ -1161,9 +1061,7 @@ and glowing. Peter gave the message.
 "Thanks," said Sylvia prettily. Maggie stared after him. She was still
 the least bit bold in those days.
 
-<span id="calibre_link-88" page-number="43"
-page-name="Page:There Is Confusion.djvu/49" page-index="49"
-page-quality="3" title="Page:There_Is_Confusion.djvu/49"></span>"Ain't
+"Ain't
 he the best looker you ever saw, Sylvia? Such eyes! Who is he, anyway?
 Not ever Joanna's beau?"
 
@@ -1185,8 +1083,7 @@ and fell on Peter's black head.
 
 She sighed. He had not even been a member of the class when she had
 taught this particular physiological phenomenon. "Can't anyone besides
-Joanna Marshall give me the 'Course of the Food?<span
-class="calibre35">'</span>"
+Joanna Marshall give me the 'Course of the Food?'"
 
 Peter raised his hand. "He looks intelligent," she thought. "Well, Bye
 you may try it."
@@ -1201,10 +1098,7 @@ begin.
 This was old ground for Peter. "Look, I can draw it. See, you take the
 food in your mouth," he drew a rough sketch of lips, mouth cavity and
 gullet, "then you must chew it, masticate, I think you said." He went on
-varying from his own <span id="calibre_link-89" page-number="44"
-page-name="Page:There Is Confusion.djvu/50" page-index="50"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/50"></span>simplified interpretation
+varying from his own simplified interpretation
 of Meriwether Bye's early instructions, past difficult names like
 pancreatic juice and thoracic duct, and while he talked he drew,
 recalling pictures from those old anatomies; expounding, flourishing.
@@ -1241,11 +1135,7 @@ him with this same admiration.
 to the day and measure the amount of time and effort it would take him
 to become a surgeon, a dentist, a lawyer, an engineer. All these things
 Joel discussed about his table with the intense seriousness which
-colored men feel when they speak of their children's futures. <span
-id="calibre_link-90" page-number="45"
-page-name="Page:There Is Confusion.djvu/51" page-index="51"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/51"></span>Alexander and Philip were
+colored men feel when they speak of their children's futures. Alexander and Philip were
 to have their choice of any calling within reason. They were seventeen
 and fifteen now and the house swarmed with college catalogues. Schools,
 terms, degrees of prejudice, fields of practice,—Joanna knew them all.
@@ -1282,10 +1172,7 @@ myself. You'll see! They'll have on the bill-board, 'Joanna Marshall,
 the famous artist,'—" She was almost dancing along the sidewalk now, her
 eyes and cheeks glowing.
 
-Peter looked at her wistfully. His practical experience and <span
-id="calibre_link-91" page-number="46"
-page-name="Page:There Is Confusion.djvu/52" page-index="52"
-page-quality="3" title="Page:There_Is_Confusion.djvu/52"></span>the
+Peter looked at her wistfully. His practical experience and the
 memory of his father inclined him to dubiousness. But her superb
 assurance carried away all his doubts.
 
@@ -1297,15 +1184,11 @@ stand stupid, common people."
 "You'll always be able to stand me," said Peter with a fervor which made
 his statement a vow.
 
-<span id="calibre_link-92" page-number="47"
-page-name="Page:There Is Confusion.djvu/53" page-index="53"
-page-quality="3" title="Page:There_Is_Confusion.djvu/53"></span>
+
 
 Chapter VII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">S</span></span><span
-class="wst-uppercase1">ylvia</span> and Joanna, walking through
+Sylvia and Joanna, walking through
 Sixty-third Street on an errand for their mother, came upon groups of
 children playing games. Italians, Jews, colored Americans, white
 Americans were there disporting themselves with more or less abandon,
@@ -1321,10 +1204,10 @@ them above their heads. One girl stood in the middle, singing too, but
 with an attentive air. Presently she darted forward, seized a member of
 the ring:
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>Say, little
-Missy, won't you marry me?"<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Say, little
+Missy, won't you marry me?"  
+  
+
 
 Their voices were treble and sweet, though shrill, and rang with a
 peculiar, piercing quality above the street noises and the sounds of the
@@ -1333,64 +1216,53 @@ with the spirit of the dance and the abandon of the music. Joanna, too,
 was in a transport. She watched them going through the motions several
 times. Presently she caught all the words:
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>Sissy in the
-barn, join in the weddin,'<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Sissy in the barn, join in the
-weddin<span class="calibre35">'</span>"<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Sissy in the
+barn, join in the weddin,'  
+Sissy in the barn, join in the
+weddin'"  
+  
+
 
 The child in the center here chose a partner. The others sang:
 
-<span id="calibre_link-94" page-number="48"
-page-name="Page:There Is Confusion.djvu/54" page-index="54"
-page-quality="3" title="Page:There_Is_Confusion.djvu/54"></span>
 
-<span class="ws-poem-line2">"Sweetest l'il couple I ever did see.<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">Barn! Barn!<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+
+"Sweetest l'il couple I ever did see.  
+Barn! Barn!  
+  
+
 
 They stamped here.
 
-<span class="ws-poem-line2">"Arms all 'round me!<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">Barn!<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Arms all 'round me!  
+Barn!  
+  
+
 
 The two children in the center embraced each other while the rest sang:
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>Say, little
-Missy, won't you marry me?"<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Say, little
+Missy, won't you marry me?"  
+  
+
 
 Then the two in the center pointed fingers at each other, shrilling:
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>Stay back,
-girl, don't you come near me<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1"><span
-class="ws-poem-indent"> </span>All them sassy words you say!<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Stay back,
+girl, don't you come near me  
+ All them sassy words you say!  
+  
+
 
 Then all:
 
-<span class="ws-poem-line2">Oh, Barn! Barn!<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">"Arms all 'round me!<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">Say, little Missy, won't you
-marry me?<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">Marry me?"<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+Oh, Barn! Barn!  
+"Arms all 'round me!  
+Say, little Missy, won't you
+marry me?  
+Marry me?"  
+  
+
 
 The last line came as a faint echo.
 
@@ -1408,10 +1280,7 @@ good-by. "I must go now, but I'm coming back sometime soon, to learn
 some more." She blew them a kiss, "good-by, oh, good-by!"
 
 She came up to Sylvia flushed and excited. "We'll play it home, Sylvia!
-Wasn't it lovely and dear? Oh, I could dance <span id="calibre_link-95"
-page-number="49" page-name="Page:There Is Confusion.djvu/55"
-page-index="55" page-quality="3"
-title="Page:There_Is_Confusion.djvu/55"></span>like that forever!" She
+Wasn't it lovely and dear? Oh, I could dance like that forever!" She
 went almost all the entire remaining distance on tip-toe.
 
 Life in Joel Marshall's house was not always a serious discussion of the
@@ -1446,10 +1315,7 @@ faun, instructed Maggie Ellersley.
 
 "Now, Maggie, dance up to one of them. All right, take Philip. You point
 your finger at him,—no both of you. Yes, you're right, Peter. I forgot
-that. See, Phil, Peter's learned <span id="calibre_link-96"
-page-number="50" page-name="Page:There Is Confusion.djvu/56"
-page-index="56" page-quality="3"
-title="Page:There_Is_Confusion.djvu/56"></span>it already. Here I'll do
+that. See, Phil, Peter's learned it already. Here I'll do
 it by myself; all of you stand back."
 
 She went through an elaborate pantomime, stretching out her hands as
@@ -1486,11 +1352,9 @@ Peter's absence from her so much, but he was a Bye and she did not
 choose to have him associate too much with people whom she did not know.
 It was no part of her plan for Peter to retrograde into the wreck which
 Meriwether had become. She made it her business to meet Mrs. Marshall at
-a church <span class="wst-tooltip" title="[sic]">affair</span>
+a church affair
 
-<span id="calibre_link-97" page-number="51"
-page-name="Page:There Is Confusion.djvu/57" page-index="57"
-page-quality="3" title="Page:There_Is_Confusion.djvu/57"></span>"I
+"I
 think," said Miss Graves, eyeing Joanna's mother with her clear, square
 gaze, "that my boy has spoken to me of you."
 
@@ -1529,9 +1393,7 @@ mapping out of his children's future. His own and Joanna's high
 enthusiasms had borne fruit. Of late the boys, Philip and Alexander, had
 talked good solid man-talk.
 
-<span id="calibre_link-98" page-number="52"
-page-name="Page:There Is Confusion.djvu/58" page-index="58"
-page-quality="3" title="Page:There_Is_Confusion.djvu/58"></span>"Colored
+"Colored
 people will be going big pretty soon. We'll have to get in it, too, Pa."
 
 Miss Susan decided this was a good place for Peter. Even if she had the
@@ -1562,9 +1424,7 @@ These were only kind trivialities, but the boys treated their sisters
 like queens. Philip was a little like Sylvia, only neither as handsome
 nor as lithe and quick. Alexander—Alec, Sandy, the girls called him
 variously—was slower, like Joanna. Both boys were tall and well set-up.
-<span id="calibre_link-99" page-number="53"
-page-name="Page:There Is Confusion.djvu/59" page-index="59"
-page-quality="3" title="Page:There_Is_Confusion.djvu/59"></span>The
+The
 girls used to thrill a little—sisters to them though they were—over the
 very real and thoughtful gallantry of these two young men.
 
@@ -1597,29 +1457,22 @@ fifteen, he did not dare. Yet he often touched Sylvia's.
 The night that Joanna taught them all the barn dance, Peter maneuvered
 until he got Harry Portor at the piano, and said:
 
-<span id="calibre_link-100" page-number="54"
-page-name="Page:There Is Confusion.djvu/60" page-index="60"
-page-quality="3" title="Page:There_Is_Confusion.djvu/60"></span>"How
+"How
 does that part go, Joanna? Here I am in the center. Then I take you in.
-Then<span class="calibre36">——</span>—"
+Then———"
 
-"Put your arms around her," said Sylvia. "That's it. Now,<span
-class="calibre36">——</span>—
+"Put your arms around her," said Sylvia. "That's it. Now,———
 
-<span class="wst-gap1"></span>*Barn! Barn!"*
+*Barn! Barn!"*
 
 He went home and fairly babbled to his aunt about it. "Joanna is the
 most wonderful!"
 
-<span id="calibre_link-101" page-number="55"
-page-name="Page:There Is Confusion.djvu/61" page-index="61"
-page-quality="3" title="Page:There_Is_Confusion.djvu/61"></span>
+
 
 Chapter VIII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">f</span> Peter was unconscious of the utter
+If Peter was unconscious of the utter
 desirability of association with the young Marshalls, Maggie Ellersley
 was not. Ever since her childhood when she had overheard a conversation
 between a cousin and her mother, she had made up her mind to attach
@@ -1641,10 +1494,7 @@ that the fact that she was black in a country where color is a crime and
 you have her "complex." Some people would say she had really done well
 in one sense with her life. She had attained by her own unaided efforts
 to a comfortable, even if menial, position, where she had heat, light
-and enough to eat. They would ask: Considering her beginnings what <span
-id="calibre_link-103" page-number="56"
-page-name="Page:There Is Confusion.djvu/62" page-index="62"
-page-quality="3" title="Page:There_Is_Confusion.djvu/62"></span>more
+and enough to eat. They would ask: Considering her beginnings what more
 could she want? Alas, in that dull soul unknown aspirations stirred,
 amazing questions took form. "Why, why, why?" asked Mis' Sparrow in her
 own peculiar dialect, "are all the sweetness and light of life showered
@@ -1663,7 +1513,7 @@ polite.
 
 "Young Mr. Proctor's sister met her in boardin'-school, poorest thing
 there," replied Mis' Sparrow, wiping a puckered mouth with her apron.
-<span class="calibre35">"</span>'Monia says Miss Dorothy sorry for her
+"'Monia says Miss Dorothy sorry for her
 and got her a job in her father's office. Mr. Harry was jes' home f'um
 college; he saw her, took a fancy to her and jes' married her. Jes'
 wouldn't listen to nobuddy a-tall."
@@ -1674,7 +1524,7 @@ the luck? Now if that kind of thing could just happen to my Maggie."
 Mis' Sparrow was unmoved by the irrelevant allusion to Maggie. Where
 would she get such a chance?
 
-<span class="calibre35">"</span>'Monia says she don't even love him.
+"'Monia says she don't even love him.
 Liked some young travelin' salesman she'd known all her life. 'Monia
 declares she cries about him when she's by herself."
 
@@ -1685,9 +1535,7 @@ an interested listener.
 ugly cloes an' bills? Some w'ite folks has it most as bad as us poor
 colored people. Only thing is they has more opporchunities."
 
-<span id="calibre_link-104" page-number="57"
-page-name="Page:There Is Confusion.djvu/63" page-index="63"
-page-quality="3" title="Page:There_Is_Confusion.djvu/63"></span>Maggie,
+Maggie,
 visualizing the life which she and her mother endured, thought she
 probably would. She thought it again after they had reached the tenement
 in Thirty-fifth Street where the two of them lived. It was the famous
@@ -1718,10 +1566,7 @@ usually salt and sometimes tainted.
 Out of it all Maggie bloomed—a strange word but somehow true. She was
 like a yellow calla lily in the deep cream of her skin, the slim
 straightness of her body. She had a mass of fine, wiry hair which hung
-like a cloud, a mist over two <span id="calibre_link-105"
-page-number="58" page-name="Page:There Is Confusion.djvu/64"
-page-index="64" page-quality="3"
-title="Page:There_Is_Confusion.djvu/64"></span>gray eyes. Her lips, in
+like a cloud, a mist over two gray eyes. Her lips, in
 spite of her constant malnutrition, persisted unbelievably red. When she
 met excitement those gray eyes darkened and shone, her cheeks flushed a
 little, her small hands fluttered. And she was nearly always excited.
@@ -1757,9 +1602,7 @@ was, a true daughter of the Tenderloin.
 But she came slowly to realize that here was a way out. If she could
 only grow up—if she were—say—seventeen.
 
-<span id="calibre_link-106" page-number="59"
-page-name="Page:There Is Confusion.djvu/65" page-index="65"
-page-quality="3" title="Page:There_Is_Confusion.djvu/65"></span>She was
+She was
 persistently frail, else her mother might have put her to work. As it
 was she was sent to school very regularly—to save fuel and gas. Evenings
 she went to the houses where her mother worked and got her dinner.
@@ -1796,9 +1639,7 @@ Mrs. Ellersley's absolute honesty. She did what she could for him, sat
 up long nights, gave him his medicine faithfully, "counted out his
 money."
 
-<span id="calibre_link-107" page-number="60"
-page-name="Page:There Is Confusion.djvu/66" page-index="66"
-page-quality="3" title="Page:There_Is_Confusion.djvu/66"></span>But it
+But it
 was Maggie who gave real service. She stayed out of school to attend
 him. The doctor gave her a list of directions which she followed with
 meticulous care. In that shabby house down in that terrible district
@@ -1824,8 +1665,7 @@ that."
 "I could try. What is it?"
 
 "Oh Mr. Howe, if you could just get us out of this awful place, this
-house, this street! If I could just get to know some decent folks<span
-class="calibre36">——</span>—"
+house, this street! If I could just get to know some decent folks———"
 
 "Well, I don't see how I could arrange about the folks. Where do you
 want to live, if you go from here? There're not many places for colored
@@ -1838,10 +1678,7 @@ decent folks living in them."
 houses."
 
 "I know, oh, I know. But if we could just get started. Mother could fill
-the house with roomers. Why there've been <span id="calibre_link-108"
-page-number="61" page-name="Page:There Is Confusion.djvu/67"
-page-index="67" page-quality="3"
-title="Page:There_Is_Confusion.djvu/67"></span>twelve men here for this
+the house with roomers. Why there've been twelve men here for this
 room since you've been sick. The rest of the rooms aren't much, but
 mother always keeps this room tidy, and we're honest. They all know
 that. Never missed a penny here, any of them. And they tell their
@@ -1876,10 +1713,7 @@ course, for Maggie's sake I'd like to get away."
 is our one chance. You see if we don't take this we'll never get away."
 
 Fortunately she had Howe to back her. "She's right, Mrs. Ellersley, and
-this is no place for a young girl to grow up. <span
-id="calibre_link-109" page-number="62"
-page-name="Page:There Is Confusion.djvu/68" page-index="68"
-page-quality="3" title="Page:There_Is_Confusion.djvu/68"></span>You can
+this is no place for a young girl to grow up. You can
 count on me. I'll go look for a house, and see about some furniture. I
 know plenty of fellows would be glad to come."
 
@@ -1913,9 +1747,7 @@ in turn had had it from young Mrs. Proctor. The dress was worn, but it
 was whole, and Maggie had tacked a tiny turnover of white lace in the
 high collar.
 
-<span id="calibre_link-110" page-number="63"
-page-name="Page:There Is Confusion.djvu/69" page-index="69"
-page-quality="3" title="Page:There_Is_Confusion.djvu/69"></span>She was
+She was
 assigned to the eighth grade. There were two of them in the school. Her
 star was in the ascendant, for she was assigned to the one of which
 Sylvia Marshall was a member. She would have fared differently if it had
@@ -1951,9 +1783,7 @@ known of colored people like these.
 
 "At last I'm getting to know decent people," she told her mother.
 
-<span id="calibre_link-111" page-number="64"
-page-name="Page:There Is Confusion.djvu/70" page-index="70"
-page-quality="3" title="Page:There_Is_Confusion.djvu/70"></span>She had
+She had
 a passion for respectability and decency quite apart from what they
 connoted of comparative ease and comfort, though she coveted these
 latter, too, and meant some day to have them.
@@ -1963,15 +1793,11 @@ Thirty-fifth Street, and I got away. If that could happen, anything
 could happen." She lay in her bed at nights in the little yellow room
 and saw visions.
 
-<span id="calibre_link-112" page-number="65"
-page-name="Page:There Is Confusion.djvu/71" page-index="71"
-page-quality="3" title="Page:There_Is_Confusion.djvu/71"></span>
+
 
 Chapter IX
 
-<span class="dropinitial"><span
-class="dropinitial-initial">S</span></span><span
-class="wst-uppercase1">he</span> played her cards with an odd mixture of
+She played her cards with an odd mixture of
 deliberation and spontaneity.
 
 "Maggie adores you, Sylvia," said Joanna.
@@ -1999,10 +1825,7 @@ school I go to and to Sunday-School. I wouldn't want the other children
 to see her in my things, she'd feel so badly."
 
 Her mother saw the justice of that. "I suppose I have one or two things.
-There's that old brown Henrietta of <span id="calibre_link-114"
-page-number="66" page-name="Page:There Is Confusion.djvu/72"
-page-index="72" page-quality="3"
-title="Page:There_Is_Confusion.djvu/72"></span>mine and the silk poplin.
+There's that old brown Henrietta of mine and the silk poplin.
 How'll she get them made over though, Sylvia? Now don't expect me to
 help."
 
@@ -2036,10 +1859,7 @@ had longed so to get her hands on it. Maggie put it on Saturday morning
 and stood in front of the cheval mirror in Mrs. Marshall's room admiring
 her own and Sylvia's handiwork, and herself with it.
 
-"It's too pretty to wear in the house. Oh, don't let's have <span
-id="calibre_link-115" page-number="67"
-page-name="Page:There Is Confusion.djvu/73" page-index="73"
-page-quality="3" title="Page:There_Is_Confusion.djvu/73"></span>to wait
+"It's too pretty to wear in the house. Oh, don't let's have to wait
 till to-morrow. Mamma, couldn't the boys take us to the matinée? Maggie,
 have you seen Peter Pan?"
 
@@ -2074,9 +1894,7 @@ Philadelphia, Maggie stayed with Sylvia a whole month.
 In her junior year in the high school she had a long talk with Mr.
 Marshall. Of course they were still poor, the house just kept them in
 comfort. Maggie had become addicted to the wearing of good clothes. Her
-mother was getting older. <span id="calibre_link-116" page-number="68"
-page-name="Page:There Is Confusion.djvu/74" page-index="74"
-page-quality="3" title="Page:There_Is_Confusion.djvu/74"></span>They
+mother was getting older. They
 needed help from time to time. If Mr. Marshall would assist her in
 getting some work. She was young and strong and willing.
 
@@ -2109,10 +1927,7 @@ energy in his father's interests.
 
 His chief work consisted in directing his father's various squads of
 waiters. He met them at the house where Joel was catering, started them
-off, checked over necessities, looked <span id="calibre_link-117"
-page-number="69" page-name="Page:There Is Confusion.djvu/75"
-page-index="75" page-quality="3"
-title="Page:There_Is_Confusion.djvu/75"></span>after the thousand
+off, checked over necessities, looked after the thousand
 details which lent to Joel's service the perfection that so justly
 brought him fame. Maggie often accompanied Philip on these trips.
 Sometimes she went to one house and he to another, and he would call for
@@ -2147,9 +1962,7 @@ no explanations.
 
 Maggie wondered what he did. Whatever his occupation, it certainly paid
 him well. More than once she had seen him display without ostentation a
-huge roll of bills, which ap<span id="calibre_link-118" page-number="70"
-page-name="Page:There Is Confusion.djvu/76" page-index="76"
-page-quality="3" title="Page:There_Is_Confusion.djvu/76"></span>parently
+huge roll of bills, which apparently
 was static in bulk. His speech was often ungrammatical, but so
 deliberate that one thought he must be speaking correctly. He had a
 rather grand air, and listened to both Mrs. Ellersley and her daughter
@@ -2177,15 +1990,11 @@ old Phil so excited about?"
 going about with a man like Henderson Neal. Maggie can go with men that
 my sisters can't afford to associate with."
 
-<span id="calibre_link-119" page-number="71"
-page-name="Page:There Is Confusion.djvu/77" page-index="77"
-page-quality="3" title="Page:There_Is_Confusion.djvu/77"></span>
+
 
 Chapter X
 
-<span class="dropinitial"><span
-class="dropinitial-initial">S</span></span><span
-class="wst-uppercase1">unday</span> was always an important day in the
+Sunday was always an important day in the
 Marshall household. Its importance, it is true, took on a different
 character as the years sped. In the early days Mr. Marshall looked
 forward to it as the outward and visible sign of an inward worth. He was
@@ -2212,10 +2021,7 @@ clothes. Sylvia, I think you must have inherited my taste."
 
 Sylvia groaned. "Oh, no, mamma, I don't deserve that!"
 
-Clothes, however, had not quite compensated Mrs. Marshall <span
-id="calibre_link-121" page-number="72"
-page-name="Page:There Is Confusion.djvu/78" page-index="78"
-page-quality="3" title="Page:There_Is_Confusion.djvu/78"></span>for the
+Clothes, however, had not quite compensated Mrs. Marshall for the
 arduousness otherwise entailed in the observance of the Sabbath. There
 was always company. Joel, a caterer, knew "how it ought to be done."
 Then there were the four children to dress and get off, and the constant
@@ -2231,7 +2037,7 @@ able to exhaust her supply."
 "Weren't you sights!" Sylvia teased. "You were fat, Alec, and your face
 rose large and round over your collar like a full moon. You had two eyes
 set away back from your fat cheeks and you had to bend your head way
-over to look down<span class="calibre36">——</span>—"
+over to look down———"
 
 "And you wore a grayish-brownish-greenery-yallery round straw hat,"
 interposed Joanna.
@@ -2252,10 +2058,7 @@ exemplary female."
 
 "Notable women of color," laughed Joanna. "I adored Sunday."
 
-<span id="calibre_link-122" page-number="73"
-page-name="Page:There Is Confusion.djvu/79" page-index="79"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/79"></span>Certainly no flavor of
+Certainly no flavor of
 those past days spoiled the Marshalls' enjoyment in these later years.
 Rather remarkably the whole family still went to church, Mr. and Mrs.
 Marshall from years of long habit, Sylvia because she rather liked to
@@ -2288,10 +2091,7 @@ soloist of the choir these days, sole *raison d'être* of *her*
 church-going. Her mezzo voice full and pulsing and gold brought throngs
 to the church every Sunday.
 
-"There is a green hill far away," she sang, and the puzzled, <span
-id="calibre_link-123" page-number="74"
-page-name="Page:There Is Confusion.djvu/80" page-index="80"
-page-quality="3" title="Page:There_Is_Confusion.djvu/80"></span>groping
+"There is a green hill far away," she sang, and the puzzled, groping
 congregation turned its sea of black and brown, yellow and white faces
 toward her and knew a sudden peace. Even Philip stopped his restless
 inner queries.
@@ -2302,8 +2102,7 @@ Joanna with her cool eyes and steady head cared almost nothing about
 this. She never saw herself in this scene. Always in her mind's eye she
 was far, far away from the church, in a great hall, in a crowded
 theater. There would be tier on tier of faces rising, rising above her.
-And to-morrow there would be the critics<span
-class="nowrap">. . . .</span>
+And to-morrow there would be the critics. . . .
 
 The Sundays passed thus week-end to week-end. One of them stood out in
 Joanna's memory. Philip, a Harvard junior, was home on his summer
@@ -2330,9 +2129,7 @@ The four young people turned the corner and prepared to separate.
 "Brian is coming to the house for dinner," said Joanna. "You coming,
 Maggie and Peter?"
 
-<span id="calibre_link-124" page-number="75"
-page-name="Page:There Is Confusion.djvu/81" page-index="81"
-page-quality="3" title="Page:There_Is_Confusion.djvu/81"></span>Maggie
+Maggie
 had an engagement for the afternoon. Peter refused, too, sulkily, to
 Joanna's vast satisfaction.
 
@@ -2375,9 +2172,7 @@ save expense."
 "Six or seven years!" said Brian disregarding anything else. "Golly what
 a wait! It would kill any girl but you, Janna."
 
-<span id="calibre_link-125" page-number="76"
-page-name="Page:There Is Confusion.djvu/82" page-index="82"
-page-quality="3" title="Page:There_Is_Confusion.djvu/82"></span>"Sylvia
+"Sylvia
 didn't die while you were in Harvard," Joanna returned meanly.
 
 "Not much she didn't! But she kept me in the back of her head, I'll
@@ -2418,9 +2213,7 @@ Joel rolled his cigar from one side of his mouth to the other. "Don't
 know but what I might. This neighborhood's gone down. Let me see your
 house."
 
-<span id="calibre_link-126" page-number="77"
-page-name="Page:There Is Confusion.djvu/83" page-index="83"
-page-quality="3" title="Page:There_Is_Confusion.djvu/83"></span>"Yes,
+"Yes,
 sir, I will. Has—er—Sylvia said anything to you about me? I'm getting
 along pretty well now, sir."
 
@@ -2461,10 +2254,7 @@ sharply. "What's Maggie got to do with it?"
 "Well, she and Phil. They've always paired off together, haven't they?
 Just like you and Peter, just like Sylvia and me."
 
-"She wouldn't dare," said Joanna fiercely. "Why, Philip—<span
-id="calibre_link-127" page-number="78"
-page-name="Page:There Is Confusion.djvu/84" page-index="84"
-page-quality="3" title="Page:There_Is_Confusion.djvu/84"></span>he's
+"She wouldn't dare," said Joanna fiercely. "Why, Philip—he's
 going to be somebody great, wonderful, a Garibaldi, a Toussaint! And
 Maggie, Maggie's just nobody, Brian. Why, do you know what she's taking
 up? Hair work, straightening hair, salves and shampoos and
@@ -2485,13 +2275,12 @@ you can't stop it now."
 
 "Well, good Lord, it must be as good as settled. Why Maggie thinks—only
 to-day— Oh—here, I've said enough. Thanks awfully for a nice evening,
-Jan<span class="calibre36">——</span>—"
+Jan———"
 
 "What'd she say, Brian?"
 
 "Well, you know we were coming home from church and you and Bye were
-ahead and I said, 'Look at: the lucky pair.<span
-class="calibre35">'</span>"
+ahead and I said, 'Look at: the lucky pair.'"
 
 "Yes, never mind me. Well, well?"
 
@@ -2499,22 +2288,19 @@ class="calibre35">'</span>"
 her.
 
 "And she looked at me—you know how Maggie can look—she said, 'Just like
-I miss Philip, I guess.<span class="calibre35">'</span>"
+I miss Philip, I guess.'"
 
 Joanna grew visibly taller. "You let her say that, Brian Spencer?"
 
 "Well, how could I stop her? Of course she misses Phil. And quit acting
 'offended pride,' Joanna. Heavens, doesn't Sylvia sometimes do sewing?"
 
-"Oh, but that's different, she creates, she's an artist.<span
-class="calibre36">——</span>—"
+"Oh, but that's different, she creates, she's an artist.———"
 
 "Artist your grandmother! Sleep it off, Janna. Good night." He went off,
 striding down the quiet street.
 
-<span id="calibre_link-128" page-number="79"
-page-name="Page:There Is Confusion.djvu/85" page-index="85"
-page-quality="3" title="Page:There_Is_Confusion.djvu/85"></span>Joanna
+Joanna
 closed the door and crept quietly up to her room. Seated in a wicker
 arm-chair in a stream of gold summer moonlight, she spent a long time in
 deep thought.
@@ -2544,20 +2330,16 @@ Maggie had sprung. "She shan't spoil my brother's chances."
 Rushing over to her little desk, she pulled out a piece of tan
 stationery and began a note.
 
-"Dear Maggie<span class="calibre36">——</span>—"
+"Dear Maggie———"
 
-<span id="calibre_link-129" page-number="80"
-page-name="Page:There Is Confusion.djvu/86" page-index="86"
-page-quality="3" title="Page:There_Is_Confusion.djvu/86"></span>
+
 
 Chapter XI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">P</span></span><span
-class="wst-uppercase1">eter</span> had accompanied Maggie as far as the
+Peter had accompanied Maggie as far as the
 subway station. "You won't mind if I don't go all the way home with you,
 Maggie? Fact is, I don't feel so well to-day, so if you'll excuse
-me<span class="calibre36">——</span>—" His voice trailed indeterminately.
+me———" His voice trailed indeterminately.
 
 Maggie smiled at him nicely. She was oddly happy at this moment. Linking
 her name with Philip's, as she had, gave her an odd sense of freedom, of
@@ -2580,9 +2362,7 @@ her feeling for Philip had taken a definite form; she wanted, as always,
 desperately to marry, and to marry well in order to secure for herself
 the decent respectability for which those first arid fourteen years of
 her life had created an almost morbid obsession. But she knew now that
-<span id="calibre_link-131" page-number="81"
-page-name="Page:There Is Confusion.djvu/87" page-index="87"
-page-quality="3" title="Page:There_Is_Confusion.djvu/87"></span>the one
+the one
 man through whom she wanted to secure that respectability was Philip
 Marshall. She loved him.
 
@@ -2618,9 +2398,7 @@ her forehead. Next she crowned her oval, deep-cream face with a wide
 black hat, whose somberness was repeated in a broad velvet ribbon around
 the waist of her white dress.
 
-<span id="calibre_link-132" page-number="82"
-page-name="Page:There Is Confusion.djvu/88" page-index="88"
-page-quality="3" title="Page:There_Is_Confusion.djvu/88"></span>But she
+But she
 looked anything but somber as she ran to the door at the whirr of the
 motor.
 
@@ -2663,9 +2441,7 @@ Me, I'm a-goin' t'stay right here."
 He spoke with a heavy emphasis on the last word which lent a curious
 whimsicality to his speech.
 
-<span id="calibre_link-133" page-number="83"
-page-name="Page:There Is Confusion.djvu/89" page-index="89"
-page-quality="3" title="Page:There_Is_Confusion.djvu/89"></span>"This is
+"This is
 the first time you've ever talked about yourself, Mr. Neal. Tell me some
 more, it's mighty interesting."
 
@@ -2707,9 +2483,7 @@ his serious manner.
 "Let's stop talking about me," said Maggie with sudden confusion. "Don't
 you want to hear about my mother?"
 
-<span id="calibre_link-134" page-number="84"
-page-name="Page:There Is Confusion.djvu/90" page-index="90"
-page-quality="3" title="Page:There_Is_Confusion.djvu/90"></span>"Well,
+"Well,
 not as much as about some others."
 
 "Anyway, she's been a wonderful mother. My father died when I was about
@@ -2746,9 +2520,7 @@ She thought with the ignorant pride of a young girl that it would be
 very easy for her to manage him. Shortly after that they turned around
 and came home. Maggie was glad when they reached the house, for she had
 many things to think about. Shutting off the motor, he followed her into
-the hall and they <span id="calibre_link-135" page-number="85"
-page-name="Page:There Is Confusion.djvu/91" page-index="91"
-page-quality="3" title="Page:There_Is_Confusion.djvu/91"></span>stood
+the hall and they stood
 there a minute, his powerful dark figure looming over her.
 
 She thanked him prettily. "It was very nice of you, Mr. Neal. You've
@@ -2785,9 +2557,7 @@ Culture claimed her.
 
 She came home, hot and deliciously tired.
 
-<span id="calibre_link-136" page-number="86"
-page-name="Page:There Is Confusion.djvu/92" page-index="92"
-page-quality="3" title="Page:There_Is_Confusion.djvu/92"></span>"There's
+"There's
 a letter for you," her mother told her. "Wash your face and eat your
 supper first. I want to get through's quick as I can. Mis' Sparrow and
 me, we're going to a meeting."
@@ -2826,10 +2596,7 @@ heard my mother say that only people of like position should marry each
 other, and I hardly think that would be true in the case of you and
 Philip. Then you must consider the future. My father is very ambitious
 for us and lately Philip has shown that he means to embark on a real
-career. You can see that a girl of your lowly <span
-id="calibre_link-137" page-number="87"
-page-name="Page:There Is Confusion.djvu/93" page-index="93"
-page-quality="3" title="Page:There_Is_Confusion.djvu/93"></span>aims
+career. You can see that a girl of your lowly aims
 would only be a hindrance to him. Philip Marshall cannot marry a
 hair-dresser!"
 
@@ -2852,7 +2619,7 @@ his return?
 
 "Yours,
 
-"<span class="smallcaps">Joanna Marshall.</span>"
+"Joanna Marshall."
 
 "P.S. Papa is thinking of buying a house in One Hundred and Thirty-first
 Street, in Harlem, you know. So we may move after Sylvia and the others
@@ -2873,9 +2640,7 @@ Her mind dwelt briefly on her mother. "Poor Mamma, she expected so much
 of me! Yet if Philip really cared about me, he wouldn't care a rap if
 they did object." She remembered then his slighting words.
 
-<span id="calibre_link-138" page-number="88"
-page-name="Page:There Is Confusion.djvu/94" page-index="94"
-page-quality="3" title="Page:There_Is_Confusion.djvu/94"></span>"I hate
+"I hate
 him," she said fiercely, "and Joanna and her everlasting ambitions and
 the pride of all of them. Why, you're just a beggar to them." She
 resumed her merciless self-attack.
@@ -2916,9 +2681,7 @@ lift that heavy, heavy head.
 A powerful but kind hand strove to lift it for her. She looked up then,
 a blinking figure of misery in the flickering gas flame.
 
-<span id="calibre_link-139" page-number="89"
-page-name="Page:There Is Confusion.djvu/95" page-index="95"
-page-quality="3" title="Page:There_Is_Confusion.djvu/95"></span>"But
+"But
 Miss Maggie, t'aint ever you. Was you asleep or—was you crying?"
 Henderson Neal had come in, and spying the light in the dining room had
 come to investigate.
@@ -2947,7 +2710,7 @@ to marry them?"
 
 The supposition was balm to her spirit, but she had schooled herself to
 honesty. "No, not that—one of them, oh, he never knew—I hoped, oh, Mr.
-Neal, you see I wanted him to like me<span class="calibre36">——</span>—"
+Neal, you see I wanted him to like me———"
 
 "And he doesn't, and he's been leading you on? The damned skunk. I'd
 like to kill him."
@@ -2960,10 +2723,7 @@ corrected herself, "she doesn't consider me good enough."
 himself?"
 
 "That's just it, I used to go to see them, they don't come to see me. If
-the sisters don't want me, there's no way I can <span
-id="calibre_link-140" page-number="90"
-page-name="Page:There Is Confusion.djvu/96" page-index="96"
-page-quality="3" title="Page:There_Is_Confusion.djvu/96"></span>reach
+the sisters don't want me, there's no way I can reach
 him, particularly since he isn't interested. I had just hoped that if he
 kept on seeing me, some day he would grow to like me."
 
@@ -3002,9 +2762,7 @@ he would place her on a pedestal.
 
 "I'll think about it," she promised him finally.
 
-<span id="calibre_link-141" page-number="91"
-page-name="Page:There Is Confusion.djvu/97" page-index="97"
-page-quality="3" title="Page:There_Is_Confusion.djvu/97"></span>But he
+But he
 knew if she did not take him now, she would never take him. She knew it,
 too.
 
@@ -3052,9 +2810,7 @@ She gave him her cold, stiff lips.
 
 "Henderson's my name. Good night, little girl."
 
-<span id="calibre_link-142" page-number="92"
-page-name="Page:There Is Confusion.djvu/98" page-index="98"
-page-quality="3" title="Page:There_Is_Confusion.djvu/98"></span>Shaking,
+Shaking,
 she got up to her room to lie vacant-eyed across the bed, watching the
 darkness deepen, shade into gray, vanish. The sun came bringing a new
 day, to her a new life.
@@ -3091,15 +2847,11 @@ shoulder.
 So she left New York, weeping, to return to it one day dry-eyed but with
 a bitterness that was worse than tears.
 
-<span id="calibre_link-143" page-number="93"
-page-name="Page:There Is Confusion.djvu/99" page-index="99"
-page-quality="3" title="Page:There_Is_Confusion.djvu/99"></span>
+
 
 Chapter XII
 
-<span class="dropinitial"><span class="dropinitial-fl">"</span><span
-class="dropinitial-initial">R</span></span><span
-class="wst-uppercase1">eally</span>, Joanna, you ought to treat me
+"Really, Joanna, you ought to treat me
 better. You know I'm staying in New York just on account of you!"
 
 "How do you want me to treat you, Peter?"
@@ -3125,10 +2877,7 @@ other girls in the company of Peter, and watched quite without jealousy
 their ways with him. She rather prided herself on her own aloofness from
 such tactics. Of course, some day she might let Peter talk to her about
 things other than work and art, and she might answer him, but at present
-the big things of life must be arranged. Love was <span
-id="calibre_link-145" page-number="94"
-page-name="Page:There Is Confusion.djvu/100" page-index="100"
-page-quality="3" title="Page:There_Is_Confusion.djvu/100"></span>an
+the big things of life must be arranged. Love was an
 after consideration, she felt, and as far as she knew she meant it.
 
 It was a Saturday afternoon in July and the two were in Van Cortlandt
@@ -3163,9 +2912,7 @@ lithe handsome animal, "all the big things of life smack of the earth.
 Your poet has to eat, or he can't write poetry. Well, so does the
 commonest laboring-man. The queen has children, in agony, Janna, just
 like the poorest charwoman. And love is the—the driving force for both
-of them." He <span id="calibre_link-146" page-number="95"
-page-name="Page:There Is Confusion.djvu/101" page-index="101"
-page-quality="3" title="Page:There_Is_Confusion.djvu/101"></span>mused a
+of them." He mused a
 little. "Love is the most natural and ordinary thing in the world."
 
 But Joanna didn't believe that. "Love is a wonderful, rare thing, very
@@ -3177,7 +2924,7 @@ life on love, then you can do all these other things."
 "Don't talk like a silly, Peter. You know perfectly well that for a
 woman love usually means a household of children, the getting of a
 thousand meals, picking up laundry, no time to herself for meditation,
-or reading or<span class="calibre36">——</span>—"
+or reading or———"
 
 "Dancing! That's through poor management. Marry a man who understands
 you, Janna, and he'll see that you have time for anything you want.
@@ -3206,11 +2953,8 @@ in there."
 
 "She wouldn't ordinarily. Bertully refused Helena Arnold last year. 'I'm
 sorry, Mees, but the white Americans like not to study with the brown
-Americans. Vair seely, but so. <span id="calibre_link-147"
-page-number="96" page-name="Page:There Is Confusion.djvu/102"
-page-index="102" page-quality="3"
-title="Page:There_Is_Confusion.djvu/102"></span>I am a poor man, I must
-follow the weeshes of my clients!<span class="calibre35">'</span>"
+Americans. Vair seely, but so. I am a poor man, I must
+follow the weeshes of my clients!'"
 Joanna shrugged her shoulders, spread her hands.
 
 "You're a born impersonator, Jan. I can see that little Frenchman now.
@@ -3250,10 +2994,7 @@ Sylvia had come rushing in with the astounding news:
 married—married—think of it! She ran away with that man at her house,
 that Mr. Neal. And they're going to live in Philadelphia."
 
-Philip's haggard face had turned a trifle more wan, Joanna <span
-id="calibre_link-148" page-number="97"
-page-name="Page:There Is Confusion.djvu/103" page-index="103"
-page-quality="3" title="Page:There_Is_Confusion.djvu/103"></span>had
+Philip's haggard face had turned a trifle more wan, Joanna had
 thought. "Has she written to you, Sylvia?" he asked her quickly.
 
 "Not a word. I can't imagine why she said nothing to me about it. She
@@ -3291,10 +3032,7 @@ I agree with him."
 
 "But to be set apart like that!"
 
-"What do I care?" asked Joanna, the practical. "You've <span
-id="calibre_link-149" page-number="98"
-page-name="Page:There Is Confusion.djvu/104" page-index="104"
-page-quality="3" title="Page:There_Is_Confusion.djvu/104"></span>got to
+"What do I care?" asked Joanna, the practical. "You've got to
 take life as you find it, Peter. The way I figure it is this. If all I
 needed to get on the stage was the mastery of a difficult step, I'd get
 there, wouldn't I? For somehow, sometime, I'd learn how to overcome that
@@ -3336,9 +3074,7 @@ family, by the way, may have been Quakers, but there's nothing Quakerish
 about her. Helena says she goes with the Greenwich Village group all the
 time, and for all their craziness, they've got some mighty big ideas."
 
-<span id="calibre_link-150" page-number="99"
-page-name="Page:There Is Confusion.djvu/105" page-index="105"
-page-quality="3" title="Page:There_Is_Confusion.djvu/105"></span>"Can't
+"Can't
 get anything to eat, if you're colored, down in their dinky old
 restaurants."
 
@@ -3376,9 +3112,7 @@ glances. With Peter she felt safe to stand for long moments watching the
 children play, to enter queer dark shops, to taste strange messes.
 Sometimes she spoke to the women about their dresses, their headgear.
 One Spanish woman, grown used to the sight of this dark American girl
-and the good-looking boy <span id="calibre_link-151" page-number="100"
-page-name="Page:There Is Confusion.djvu/106" page-index="106"
-page-quality="3" title="Page:There_Is_Confusion.djvu/106"></span>at her
+and the good-looking boy at her
 side, took them into her quarters one day and showed Joanna how she
 dressed her hair. Another time she taught her an intricate Spanish
 dance.
@@ -3415,9 +3149,7 @@ bent toward her, one slender brown hand touching her dress ever so
 lightly. He would have given the world to believe she was thinking about
 him, but he knew she was not. He would have been astounded if he could
 have dreamed of the maze of her thoughts. Joanna was really most human
-<span id="calibre_link-152" page-number="101"
-page-name="Page:There Is Confusion.djvu/107" page-index="107"
-page-quality="3" title="Page:There_Is_Confusion.djvu/107"></span>at
+at
 moments like these. Through her mind was floating a series of little
 detached pictures. She saw a glittering stage, Peter, herself, some
 little children. She felt a hazy, nebulous, mystical joy.
@@ -3460,10 +3192,7 @@ She put her head back then. She opened her dark eyes and looked full
 into his.
 
 Their lips were so near, so near. In a second he had pressed his against
-hers, briefly yet with passion. She sat up and <span
-id="calibre_link-153" page-number="102"
-page-name="Page:There Is Confusion.djvu/108" page-index="108"
-page-quality="3" title="Page:There_Is_Confusion.djvu/108"></span>drew a
+hers, briefly yet with passion. She sat up and drew a
 little away from him, dazed. But he put his arms around her and held her
 close. Presently they walked home, speechless. When they came to an
 arc-light, they looked at each other's faces, eager to study and to
@@ -3472,15 +3201,11 @@ enchantment. Something leaped, something fluttered within their hearts,
 like a fettered, struggling wing. And it was beautifully, it was
 magically, first love!
 
-<span id="calibre_link-154" page-number="103"
-page-name="Page:There Is Confusion.djvu/109" page-index="109"
-page-quality="3" title="Page:There_Is_Confusion.djvu/109"></span>
+
 
 Chapter XIII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">he</span> vacation sped as vacations will. Peter
+The vacation sped as vacations will. Peter
 played in the awful cabaret, saved his money and adored Joanna. Joanna
 practiced trills, danced, thought of Peter and allowed him to adore her.
 As the early September days spread their golden haze over Harlem and
@@ -3506,10 +3231,7 @@ silly sheep," she dubbed them.
 She could not, it is true, bundle up her thoughts of Peter and say,
 "I'll think of you to-morrow at three," but she did achieve a
 concentration in her work that made it almost impossible for him to
-remain too long in her thoughts. And at <span id="calibre_link-156"
-page-number="104" page-name="Page:There Is Confusion.djvu/110"
-page-index="110" page-quality="3"
-title="Page:There_Is_Confusion.djvu/110"></span>nights when he tossed
+remain too long in her thoughts. And at nights when he tossed
 sleepless on his bed, dreaming fragrant dreams and seeing golden
 visions, she was sleeping the perfect sleep of healthy weariness.
 
@@ -3535,8 +3257,7 @@ bench on which they sat pleasantly warm. But the leaves about them were
 going a little sere; in the shade the air felt chill, and the sunshine,
 though warm, was thin and white.
 
-<span class="calibre35">"</span>'The summer is ended.<span
-class="calibre35">'</span>" Joanna quoted softly; she sighed. Peter
+"'The summer is ended.'" Joanna quoted softly; she sighed. Peter
 looked at her, there were tears in her eyes.
 
 "Dear, beautiful Joanna," said Peter, and his own beautiful face was
@@ -3547,9 +3268,7 @@ clung to him.
 "Peter, you must go, you must, really. We—we can't go on like this.
 We've got to prepare ourselves while we're young for the future."
 
-<span id="calibre_link-157" page-number="105"
-page-name="Page:There Is Confusion.djvu/111" page-index="111"
-page-quality="3" title="Page:There_Is_Confusion.djvu/111"></span>"Yes,"
+"Yes,"
 said Peter and his ardor chilled a little at the touch of her cool
 practicality. But a moment later her light touch rekindled him.
 
@@ -3577,36 +3296,33 @@ other, like children. The dry grass and brittle leaves crackled beneath
 their feet, the air hung over them like a thin, misty veil. Joanna sang
 a bit from an old Italian song:
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>If from Heaven
-we could but borrow<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">One day longer of fond
-affection<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">It would lessen then our
-sorrow,<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Give fresh joys for
-recollection."<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"If from Heaven
+we could but borrow  
+One day longer of fond
+affection  
+It would lessen then our
+sorrow,  
+Give fresh joys for
+recollection."  
+  
+
 
 She hummed a line here, then her voice rose again in the thin,
 shimmering air:
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>—The future,
-dark and lonely!<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Dearest Loved One, dearest
-Loved One<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Parting makes these joys so
-dear!<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Ah!—"<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"—The future,
+dark and lonely!  
+Dearest Loved One, dearest
+Loved One  
+Parting makes these joys so
+dear!  
+Ah!—"  
+  
+
 
 "Don't, Joanna; it's too sweet. You'll make me cry."
 
-<span id="calibre_link-158" page-number="106"
-page-name="Page:There Is Confusion.djvu/112" page-index="112"
-page-quality="3" title="Page:There_Is_Confusion.djvu/112"></span>"I know
+"I know
 it. Oh, Peter, go away and come back great and when you come back, speak
 to me."
 
@@ -3645,10 +3361,7 @@ Peter did not think this would help much. He wanted Joanna, though he
 said nothing about that to Louis. Astonishingly, however, the cure
 worked.
 
-Louis seemed to know half of colored Philadelphia. "Mighty <span
-id="calibre_link-159" page-number="107"
-page-name="Page:There Is Confusion.djvu/113" page-index="113"
-page-quality="3" title="Page:There_Is_Confusion.djvu/113"></span>nice
+Louis seemed to know half of colored Philadelphia. "Mighty nice
 girls in this man's town, I can tell you. They'll take to you, Peter,
 because, of course, you're a Bye. Mentioned your name to old Mrs. Viny
 the other day and she told me to be sure to bring you around. She'd like
@@ -3684,17 +3397,14 @@ don't board at Uncle Peter's, you see.
 "There're lots of jolly girls here. Of course, they're not like yours
 and Sylvia's crowd, bent on climbing to the top of a profession—well,
 Sylvia wasn't that way so much—but they're a very nice bunch and they
-have been most kind to your humble servant<span
-class="nowrap">. . . .</span>
+have been most kind to your humble servant. . . .
 
 "Do you remember that day in the Park? Joanna darling, what are you
 going to say to me when I come back Christmas?
 
-"<span class="smallcaps">Peter.</span>"
+"Peter."
 
-<span id="calibre_link-160" page-number="108"
-page-name="Page:There Is Confusion.djvu/114" page-index="114"
-page-quality="3" title="Page:There_Is_Confusion.djvu/114"></span>"N. B.
+"N. B.
 These x's are kisses." \[There was a long string of them.\]
 
 His letters to Joanna reacted to his own advantage. He felt he must be
@@ -3727,10 +3437,7 @@ track work. Friday and Sunday he spent at Arabelle Morton's or at Lawyer
 Talbert's on Christian Street. This latter and his family consisting of
 two sons and two daughters, were the relatives with whom the Marshalls
 stayed on their visits to Philadelphia. He found them very enjoyable.
-One of the boys was an undertaker but with a <span id="calibre_link-161"
-page-number="109" page-name="Page:There Is Confusion.djvu/115"
-page-index="115" page-quality="3"
-title="Page:There_Is_Confusion.djvu/115"></span>disposition far less
+One of the boys was an undertaker but with a disposition far less
 lugubrious than his calling. The other was in the Wharton School of
 Finance at Pennsylvania and was to read law later at Harvard. Both girls
 were young and both were engaged. They were very much in love, but as
@@ -3764,9 +3471,7 @@ formally announcing it now. There'll be luncheons—not for you I'm
 afraid, Peter. Then our dancing class is giving a benefit for the Pierce
 Day Nursery. There'll be fancy dancing on the stage, in which your
 humble servant will star. And we're to have a Christmas tree at our
-house <span id="calibre_link-162" page-number="110"
-page-name="Page:There Is Confusion.djvu/116" page-index="116"
-page-quality="3" title="Page:There_Is_Confusion.djvu/116"></span>and a
+house and a
 house party. I'm asking you now, Peter. Isn't it great being grown up?"
 
 "You bet. Which of these functions comes off first?"
@@ -3808,12 +3513,8 @@ the dark hall.
 
 "I love you, Peter. Come on."
 
-"No, sir, put your little arms around my neck. So. Now <span
-id="calibre_link-163" page-number="111"
-page-name="Page:There Is Confusion.djvu/117" page-index="117"
-page-quality="3" title="Page:There_Is_Confusion.djvu/117"></span>say,
-'Dear Peter, I love you and I'm going to marry you.<span
-class="calibre35">'</span>"
+"No, sir, put your little arms around my neck. So. Now say,
+'Dear Peter, I love you and I'm going to marry you.'"
 
 "Oh, I can't say that. Let me go, Peter."
 
@@ -3839,8 +3540,8 @@ and kissed her hands. "Darling Joanna, I'll love you always."
 
 Between them, they wiped away the traces of the smudge and of her tears.
 Then they found their way out, and walked through the dark silent
-streets singing "[Joy to the
-World](https://en.wikisource.org/wiki/Joy_to_the_World "Joy to the World"),"
+streets singing "Joy to the
+World,"
 like a pair of Christmas waifs.
 
 The lovers found it hard to see each other. There were too many things
@@ -3854,19 +3555,16 @@ silken limbs flashed and twinkled through a series of poses and groups
 until one thought of an animated Greek frieze. At the end the seven
 girls appeared as school children. Joanna as their leader was teaching
 them a game. Peter watched her flashing in a red dress across the stage,
-dancing, <span id="calibre_link-164" page-number="112"
-page-name="Page:There Is Confusion.djvu/118" page-index="118"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/118"></span>leaping, twirling. The
+dancing, leaping, twirling. The
 orchestra struck up something vaguely familiar. Why, it was Joanna's old
 dance, "Barn! Barn!"
 
 She swayed, she balanced, she stamped her foot.
 
-<span class="ws-poem-line1">*"Stay back, girl, don't you come near
-me!"*<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+*"Stay back, girl, don't you come near
+me!"*  
+  
+
 
 Miss Sharples was there with a group of Greenwich Village folks, Helena
 Arnold told them afterwards.
@@ -3898,15 +3596,13 @@ right, they were out, but the rooms were warm and comfortable.
 
 He sat in a comfortable chair, smoked a cigarette or two, read a few
 pages in a novel. Then he remembered Joanna's box, and opened it. There
-was the letter on top. <span id="calibre_link-165" page-number="113"
-page-name="Page:There Is Confusion.djvu/119" page-index="119"
-page-quality="3" title="Page:There_Is_Confusion.djvu/119"></span>
+was the letter on top. 
 
 "Dear Peter," he read, "isn't it awful to have to separate this way? I
 have a secret I was saving for you. I'm to sing in Philadelphia very
 shortly. Aren't you glad? I love you, Peter.
 
-"<span class="smallcaps">Jan.</span>"
+"Jan."
 
 His spirits went up, up.
 
@@ -3924,22 +3620,17 @@ Something about her dejected pose made Peter look at her closely. She
 turned just then, and the street light fell full on an old-gold, oval
 face, haggard and disillusioned. Peter saw it was Maggie Ellersley.
 
-<span id="calibre_link-166" page-number="114"
-page-name="Page:There Is Confusion.djvu/120" page-index="120"
-page-quality="3" title="Page:There_Is_Confusion.djvu/120"></span>
+
 
 Chapter XIV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">P</span></span><span
-class="wst-uppercase1">oor Maggie</span>! How relentlessly and
+Poor Maggie! How relentlessly and
 completely had her illusions flown!
 
 She had enjoyed the ride to Atlantic City. Her husband had surrounded
 her with magazines, fruit, candy, even books. She had had a wonderful
 dinner and when they got to Atlantic City, he took her to a very
-respectable, clean <span class="wst-tooltip"
-title="or 'boardinghouse'">boarding-house</span>. It was nice to be
+respectable, clean boarding-house. It was nice to be
 protected, she realized that. And, when, the day after they were
 married, he gave her seventy-five dollars, and told her to send part of
 it to her mother, her spirits, which had not yet recovered from the
@@ -3962,10 +3653,7 @@ did let him buy her a few things: There were a blue silk dress, a white
 satin skirt, two or three smart, delicately tinted blouses, a wonderful
 wrap, light but warm; tan and white shoes and stockings.
 
-<span id="calibre_link-168" page-number="115"
-page-name="Page:There Is Confusion.djvu/121" page-index="121"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/121"></span>Atlantic City was a
+Atlantic City was a
 revelation to her. She had literally never been out of New York City,
 except once to a funeral in Brooklyn in company with the lugubrious Mis'
 Sparrow. This fairyland by the sea with its colored lights, its human
@@ -3997,9 +3685,7 @@ appraising them, but she could never catch their direct, gaze.
 She sought to find solace in the theaters, of which she was very fond.
 This was an opportunity, plenty of leisure and a willing companion ready
 and able to take her whenever and wherever she wished. But Atlantic City
-theaters make no <span id="calibre_link-169" page-number="116"
-page-name="Page:There Is Confusion.djvu/122" page-index="122"
-page-quality="3" title="Page:There_Is_Confusion.djvu/122"></span>secret
+theaters make no secret
 of their unwillingness to serve colored patrons. After being told at the
 ticket office that there were no more balcony seats, only to see them
 calmly handed out to the next white person in line; after enduring an
@@ -4034,10 +3720,7 @@ cross between the Philadelphians and the gay Washingtonians who played
 about in very distinct groups, superb in their fashionable clothes and
 their deep assurance.
 
-<span id="calibre_link-170" page-number="117"
-page-name="Page:There Is Confusion.djvu/123" page-index="123"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/123"></span>Maggie's landlady
+Maggie's landlady
 introduced her to one girl, a Miss Talbert from Philadelphia, who came
 up on the piazza one day to inquire for a former boarder. She was brown,
 not pretty, rather plainly but well dressed, with a beautiful manner. An
@@ -4079,10 +3762,7 @@ Her mother could make out with the money which, Neal had assured her,
 she could send regularly. And it made her sick to think of the
 Marshalls.
 
-Without regrets she mounted the train with him one day <span
-id="calibre_link-171" page-number="118"
-page-name="Page:There Is Confusion.djvu/124" page-index="124"
-page-quality="3" title="Page:There_Is_Confusion.djvu/124"></span>and
+Without regrets she mounted the train with him one day and
 went to the big, sprawling city. Its size, its long stretches of streets
 appalled her. The awful silence which seemed to descend over the town
 when she got below Walnut Street frightened her. One could be very
@@ -4116,10 +3796,7 @@ Certainly he made plenty of money.
 
 She had comfort then and she did not feel the lack of love. Occasionally
 it occurred to her, it would be nice to be performing some of her
-housewifely duties for Philip. She <span id="calibre_link-172"
-page-number="119" page-name="Page:There Is Confusion.djvu/125"
-page-index="125" page-quality="3"
-title="Page:There_Is_Confusion.djvu/125"></span>thought he would enjoy
+housewifely duties for Philip. She thought he would enjoy
 doing some of them with her. But perhaps that was because he was young.
 Things seemed to change so when one became old,—at least elderly. And
 she did not think Philip would have been out as much as Neal.
@@ -4160,9 +3837,7 @@ carried with it something very wholesome and grateful.
 Miss Mason was frankly curious. "You here alone all day? What do you do
 while your husband's to work?"
 
-<span id="calibre_link-173" page-number="120"
-page-name="Page:There Is Confusion.djvu/126" page-index="126"
-page-quality="3" title="Page:There_Is_Confusion.djvu/126"></span>"Oh,
+"Oh,
 clean, and sew and—and nap," Maggie laughed a little. "Don't you want to
 come to see me sometime, now, this afternoon?"
 
@@ -4186,32 +3861,22 @@ discrimination. Once Maggie took Annie to the Academy of Music. They
 stood in line for their seats and Maggie looked at the bill-boards. One
 of them read:
 
-<span class="ws-poem-line2">COMING!<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">THE PHILADELPHIA
-ORCHESTRA<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">MR. HUBERT SANDERSON<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">CONDUCTOR<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">DECEMBER 27TH, 1910<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">MR. THOMAS MORSE<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">WILL PRESENT<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">MISS JOANNA MARSHALL<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">MEZZO-SOPRANO OF NEW YORK<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+COMING!  
+THE PHILADELPHIA
+ORCHESTRA  
+MR. HUBERT SANDERSON  
+CONDUCTOR  
+DECEMBER 27TH, 1910  
+MR. THOMAS MORSE  
+WILL PRESENT  
+MISS JOANNA MARSHALL  
+MEZZO-SOPRANO OF NEW YORK  
+  
+
 
 She turned away, a little sick.
 
-Maggie usually paid for their outings. Annie's brother <span
-id="calibre_link-174" page-number="121"
-page-name="Page:There Is Confusion.djvu/127" page-index="127"
-page-quality="3" title="Page:There_Is_Confusion.djvu/127"></span>made a
+Maggie usually paid for their outings. Annie's brother made a
 pretty fair salary, his sister told Maggie, for he played at private
 dances for wealthy white people in West Philadelphia, Rosemont, Sharon,
 Chestnut Hill and various other suburbs.
@@ -4246,10 +3911,7 @@ attitude and imitate her accent. Annie broke into these reminiscences.
 
 "I been down here two or three times a'ready. Kind o' rawish like."
 
-"Yes, I think it's going to rain. I'll light the gas-heater <span
-id="calibre_link-175" page-number="122"
-page-name="Page:There Is Confusion.djvu/128" page-index="128"
-page-quality="3" title="Page:There_Is_Confusion.djvu/128"></span>and we
+"Yes, I think it's going to rain. I'll light the gas-heater and we
 can sit here and thaw out. I enjoy a chilly day if it's warm inside."
 
 "Kind o' that way myself."
@@ -4295,10 +3957,7 @@ dog-like brown eyes fixed wistfully on hers.
 
 "Didn't you know?"
 
-"For God's sake speak up, Annie Mason. What is it you <span
-id="calibre_link-176" page-number="123"
-page-name="Page:There Is Confusion.djvu/129" page-index="129"
-page-quality="3" title="Page:There_Is_Confusion.djvu/129"></span>know
+"For God's sake speak up, Annie Mason. What is it you know
 about him? Has he got another wife? Is he an escaped convict?"
 
 "He's a gambler."
@@ -4314,8 +3973,7 @@ course, his long hours, especially at night, his reticence—all this
 combined to make her recognize the truth.
 
 "You poor thing. Of course you don't want to believe it. That's what I
-said to Tom. I said, 'That poor thing, she's got no notion of it.<span
-class="calibre35">'</span>"
+said to Tom. I said, 'That poor thing, she's got no notion of it.'"
 
 It was intolerable, such pity! "Where is your brother, Annie?"
 
@@ -4339,11 +3997,7 @@ of her business."
 "Well, she has. Sit down, please, and tell me all you know."
 
 "I'd rather stand, thank you, ma'am. Well if I must. Even when I was a
-little boy, Henderson Neal was knowed to be a <span
-id="calibre_link-177" page-number="124"
-page-name="Page:There Is Confusion.djvu/130" page-index="130"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/130"></span>card-sharp. There wasn't
+little boy, Henderson Neal was knowed to be a card-sharp. There wasn't
 nobody could stand against him. Used to wait for the men on a Saturday
 night, white and colored. He'd meet 'em in the bar and treat, and then
 ask 'em in on a little game. And they'd play, till they was cleaned out.
@@ -4382,9 +4036,7 @@ Now she must think, she must think. Oh, what was she to do? Leave him,
 she knew that. But afterwards? She had no money. He had given her her
 very clothes. Her old ones were at her mother's. Her mother!
 
-<span id="calibre_link-178" page-number="125"
-page-name="Page:There Is Confusion.djvu/131" page-index="131"
-page-quality="3" title="Page:There_Is_Confusion.djvu/131"></span>"Poor
+"Poor
 Mamma!" she said again as on a former occasion. "What a hell her life's
 always been!"
 
@@ -4392,7 +4044,7 @@ No wonder those people, those men in Atlantic City who knew him didn't
 introduce their women folks to her.
 
 "I suppose they thought 'You thief! Dressing that girl on other men's
-money!<span class="calibre35">'</span>"
+money!'"
 
 Pretty soon he'd be home for dinner. She heard him presently coming up
 the stairs. There! He had stepped on the creaky one. That meant he
@@ -4433,9 +4085,7 @@ wrists in his brutal hand and she went ashen with pain.
 He flung her away from him then and she leaned back against the wall,
 breathing hard.
 
-<span id="calibre_link-179" page-number="126"
-page-name="Page:There Is Confusion.djvu/132" page-index="132"
-page-quality="3" title="Page:There_Is_Confusion.djvu/132"></span>"I
+"I
 suppose you'll go back to that man, that fine gentleman that didn't want
 you."
 
@@ -4481,9 +4131,7 @@ go."
 
 "Pooh, the promise of a gambler!" She hated him.
 
-<span id="calibre_link-180" page-number="127"
-page-name="Page:There Is Confusion.djvu/133" page-index="133"
-page-quality="3" title="Page:There_Is_Confusion.djvu/133"></span>"I'll
+"I'll
 show you. Best not to try me too far though, Maggie."
 
 "Well, are you going?"
@@ -4501,16 +4149,12 @@ It was an oblong business card, slightly soiled around the edges. She
 had come across it in Atlantic City and for some reason had kept it.
 Across the front ran a neat superscription
 
-<span class="ws-poem-line2">MADAME HARKNESS<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">Hair Culturist<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">270 West 137th Street<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line2">New York City<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+MADAME HARKNESS  
+Hair Culturist  
+270 West 137th Street  
+New York City  
+  
+
 
 Her glance dropped to the left-hand corner. Yes, she was right, there it
 was: Branch offices—Washington, D. C., 1307 U Street, N. W.; Baltimore,
@@ -4519,15 +4163,11 @@ was: Branch offices—Washington, D. C., 1307 U Street, N. W.; Baltimore,
 She sat all night brooding wide eyed over the purring gas-stove. In the
 morning she made herself tidy and walked up to Twentieth and South.
 
-<span id="calibre_link-181" page-number="128"
-page-name="Page:There Is Confusion.djvu/134" page-index="134"
-page-quality="3" title="Page:There_Is_Confusion.djvu/134"></span>
+
 
 Chapter XV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">S</span></span><span
-class="wst-uppercase1">ylvia</span> was arranging the smallest birthday
+Sylvia was arranging the smallest birthday
 cake in the world. It bore one very small candle and it was for the very
 small baby who, propped up in a high chair, sat and watched the birthday
 proceedings with round solemn eyes. A three-year-old youngster, whose
@@ -4556,10 +4196,7 @@ and Philip and Joanna everlastingly 'on the road,' as they express it."
 Alexander and Helena Arnold, after seeing each other constantly and
 unresponsively for ten years, suddenly fell completely in love on that
 night of the Pierce Day Nursery dance. Sandy proved himself an impulsive
-wooer, for he won <span id="calibre_link-183" page-number="129"
-page-name="Page:There Is Confusion.djvu/135" page-index="135"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/135"></span>Helena's consent and
+wooer, for he won Helena's consent and
 would have married her before Sylvia's and Brian's wedding came off.
 
 "Gracious, don't spoil my thunder," Sylvia had begged him aghast.
@@ -4595,9 +4232,7 @@ They all liked the plan. He had his project well mapped out, for he had
 thought of little else for the past three years. There were to be a
 national board and a national office, supported by local boards and
 membership. There would be need of organized publicity; he might suggest
-a magazine or a <span id="calibre_link-184" page-number="130"
-page-name="Page:There Is Confusion.djvu/136" page-index="136"
-page-quality="3" title="Page:There_Is_Confusion.djvu/136"></span>weekly
+a magazine or a weekly
 newspaper. A huge campaign must be got underway, an effort at
 nation-wide support.
 
@@ -4635,10 +4270,7 @@ wait for you a minute."
 "Not the littlest, teeniest one?" It was hard to say which was prouder
 of the other.
 
-Joanna was in fine feather in those days. She had youth <span
-id="calibre_link-185" page-number="131"
-page-name="Page:There Is Confusion.djvu/137" page-index="137"
-page-quality="3" title="Page:There_Is_Confusion.djvu/137"></span>and a
+Joanna was in fine feather in those days. She had youth and a
 certain grave beauty which did not strike the observer at first as did
 Sylvia's or even poor Maggie's. But it grew on one and remained. Young
 men, though they liked to be seen with a star, were a little afraid of
@@ -4671,9 +4303,7 @@ They had driven to the Green Street entrance, and then dismissing the
 cab had walked around the drive, up the steps, in front of the mansion
 and on to Lemon Hill. It was one of those last, warm, almost hot nights
 of Indian Summer. The slopes of the park lay deserted before them, deep
-in velvety <span id="calibre_link-186" page-number="132"
-page-name="Page:There Is Confusion.djvu/138" page-index="138"
-page-quality="3" title="Page:There_Is_Confusion.djvu/138"></span>shadow,
+in velvety shadow,
 with here and there a gold patch bright as day under the watching
 arc-light.
 
@@ -4709,7 +4339,7 @@ have seen me looking like an icebergish angel."
 
 "No, dear, I like you best."
 
-<span class="calibre35">"</span>'No, dear, I like you best'," he
+"'No, dear, I like you best'," he
 mimicked. "For God's sake, Jan, can't you say, 'Peter, I love you
 always'? Say it."
 
@@ -4718,13 +4348,9 @@ She hesitated, sighed a little. "Peter I love you."
 "Why'd you leave off 'always'?"
 
 "Dear little boy, how can I say it? I do when I think of it. But, Peter,
-I have so much to think about—my tour, my <span id="calibre_link-187"
-page-number="133" page-name="Page:There Is Confusion.djvu/139"
-page-index="139" page-quality="3"
-title="Page:There_Is_Confusion.djvu/139"></span>booking, you know, my
+I have so much to think about—my tour, my booking, you know, my
 lessons in French and Italian, my dancing. I still keep that up; I'd
-really rather do that than sing. Dancing makes me<span
-class="calibre36">——</span>—"
+really rather do that than sing. Dancing makes me———"
 
 "Oh, damn the dancing!"
 
@@ -4767,10 +4393,7 @@ diamonds.
 
 "Peter, it's too beautiful. Oh, I love you for it."
 
-He slipped it on her finger, got up and sat beside her, <span
-id="calibre_link-188" page-number="134"
-page-name="Page:There Is Confusion.djvu/140" page-index="140"
-page-quality="3" title="Page:There_Is_Confusion.djvu/140"></span>kissing
+He slipped it on her finger, got up and sat beside her, kissing
 her little cold hands. She leaned against his shoulder,—he put his arm
 about her. A poignant sweetness seemed to flood in on them out of the
 solemn, mellow night.
@@ -4800,15 +4423,13 @@ steady hand he has."
 
 He walked through the City Hall Arcade to Juniper Street, crossed in
 front of Wanamaker's and forced a passage through the teeming little
-<span class="wst-tooltip" title="[sic] 'by-way.'">by-way</span>
+by-way
 
 The Automat was crowded. "Have to eat standing," he thought, drawing a
 glass of water and seizing a knife and fork. "No, there's an empty
 table." He collected his food and began to eat.
 
-<span id="calibre_link-189" page-number="135"
-page-name="Page:There Is Confusion.djvu/141" page-index="141"
-page-quality="3" title="Page:There_Is_Confusion.djvu/141"></span>Someone
+Someone
 put a plate on the table beside him, rested a hand there a moment. Peter
 glanced at it.
 
@@ -4855,9 +4476,7 @@ his curly head and flashed out the side door.
 
 He tapped at her door at six.
 
-<span id="calibre_link-190" page-number="136"
-page-name="Page:There Is Confusion.djvu/142" page-index="142"
-page-quality="3" title="Page:There_Is_Confusion.djvu/142"></span>"I
+"I
 didn't hear you ring," said Maggie. "Come in. This *is* nice, Peter."
 
 "I should say so. Jolly little place you've got here." He settled back
@@ -4901,9 +4520,7 @@ ages. What'd you leave us for so suddenly, Maggie?"
 
 She couldn't tell *him*, of all people, about Joanna.
 
-<span id="calibre_link-191" page-number="137"
-page-name="Page:There Is Confusion.djvu/143" page-index="143"
-page-quality="3" title="Page:There_Is_Confusion.djvu/143"></span>"Oh, I
+"Oh, I
 don't know, girls are crazy, I think. Well, I'm not complaining. I'm
 better off than I've ever been. That Madame Harkness—you know whom I
 mean?"
@@ -4947,9 +4564,7 @@ that couch. He had a wretched cold, and it was raining!"
 "That's why I let him stay. He'd been harboring such jealous thoughts
 toward me. He—he has an idea that I like another man. And he has a
 terrific temper. You can't imagine how it smolders and sulks. He wasn't
-so bad about my <span id="calibre_link-192" page-number="138"
-page-name="Page:There Is Confusion.djvu/144" page-index="144"
-page-quality="3" title="Page:There_Is_Confusion.djvu/144"></span>sending
+so bad about my sending
 him away, but since he's had this suspicion I've really been afraid. I
 expect he'll be really violent some day."
 
@@ -4993,10 +4608,7 @@ cleared by magic. It had turned cooler and Maggie lit her little
 gas-stove.
 
 Peter smoked and relapsed into a moody silence, which he broke now and
-then with an account of his struggles. His <span id="calibre_link-193"
-page-number="139" page-name="Page:There Is Confusion.djvu/145"
-page-index="145" page-quality="3"
-title="Page:There_Is_Confusion.djvu/145"></span>Uncle Peter had died
+then with an account of his struggles. His Uncle Peter had died
 during his third year and the house had been inherited by his daughter,
 Mrs. Boyd. Of course he couldn't expect anything of her. Her father was
 only his great-uncle, and she had her own children to look after. He had
@@ -5012,13 +4624,12 @@ do that?"
 
 He just couldn't, he told her.
 
-"I never could endure standing around 'grand white folks.<span
-class="calibre35">'</span>" Both of them smiled at the childhood's
-phrase. <span class="calibre35">"</span>'Yes, sir, thank you— Oh, no,
+"I never could endure standing around 'grand white folks.'" Both of them smiled at the childhood's
+phrase. "'Yes, sir, thank you— Oh, no,
 sir.' Then some lazy white banker, or some fat white woman that never
 did a day's work in her life, puts a hand in a pocket and offers you a
 dime. God, how I hate it! I did it once at Asbury Park, Phil did, too.
-We both said, 'Never again!<span class="calibre35">'</span>"
+We both said, 'Never again!'"
 
 "Where do you play?"
 
@@ -5035,9 +4646,7 @@ He makes barrels of money. Come on, Peter."
 She led him, bewildered, up to the third floor, tapped on a door and was
 admitted to a room much like the one she had just left. A young woman
 with red crinkled hair and a yellow freckled face sat sewing on a white
-apron. The young man <span id="calibre_link-194" page-number="140"
-page-name="Page:There Is Confusion.djvu/146" page-index="146"
-page-quality="3" title="Page:There_Is_Confusion.djvu/146"></span>who let
+apron. The young man who let
 them in had been putting some resin on his bow. Against the wall stood a
 battered, time-worn piano.
 
@@ -5080,9 +4689,7 @@ Mason liked that. "Then you'd be workin' because you'd really need the
 fun's. Nothin' like having a purpose. Do you out to Sharon Hill with me
 to-morrow think you could go night and play that? There'd be a few other
 odds and ends. Though them white folks don't let me play nothin' much
-but <span id="calibre_link-195" page-number="141"
-page-name="Page:There Is Confusion.djvu/147" page-index="147"
-page-quality="3" title="Page:There_Is_Confusion.djvu/147"></span>that,
+but that,
 once I get started. You might drop in for an hour to-morrow and take a
 peep at the others. You can do them easy, if you can read that." He
 pointed to the piece they'd already played.
@@ -5109,15 +4716,11 @@ going to raise all that money? Now the way looks clearer."
 you to-day. Such a piece of fortune! Cheer up, child! Perhaps we'll
 bring each other luck!"
 
-<span id="calibre_link-196" page-number="142"
-page-name="Page:There Is Confusion.djvu/148" page-index="148"
-page-quality="3" title="Page:There_Is_Confusion.djvu/148"></span>
+
 
 Chapter XVI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">he</span> house on South Fifteenth Street saw
+The house on South Fifteenth Street saw
 Peter often after that. Mason could have given him work every night if
 he had wanted it. As it was he gave him enough to cause him to come for
 rehearsals three and four times a week. Usually Peter terminated his
@@ -5128,7 +4731,7 @@ She appreciated Peter's company, for she had been very lonely in this
 big city with its impregnable social fortresses. "It's a wonder you come
 to see me so often, Peter," she told him wistfully. "Being a Bye gives
 you the entrance everywhere among the oldest of these 'old
-Philadelphians.<span class="calibre35">'</span>"
+Philadelphians.'"
 
 "Yes," said Peter cheerfully, "but home-folks are best. And then you
 make it so pleasant for me, Maggie. Why, I've never eaten in my life
@@ -5144,9 +4747,7 @@ she had seen at Atlantic City. The startled stare of Alice Talbert, who
 happened to be there that evening, afforded her endless satisfaction.
 Maggie realized she spoke to her with a sort of wondering respect.
 
-<span id="calibre_link-198" page-number="143"
-page-name="Page:There Is Confusion.djvu/149" page-index="149"
-page-quality="3" title="Page:There_Is_Confusion.djvu/149"></span>"Wonder
+"Wonder
 what she thought," she said to herself. "Well, she can think anything
 she pleases." She had not forgotten Miss Talbert's cool reception when
 she called at Lawyer Talbert's office on the corner of Fifteenth and
@@ -5181,10 +4782,7 @@ job.
 
 "You certainly are some girl!" He took her hand in his for a moment.
 "I'll bring it with bells. Here, turn me out. I've got to get up at six
-to-morrow morning. Haven't put my <span id="calibre_link-199"
-page-number="144" page-name="Page:There Is Confusion.djvu/150"
-page-index="150" page-quality="3"
-title="Page:There_Is_Confusion.djvu/150"></span>nose inside of Carter's
+to-morrow morning. Haven't put my nose inside of Carter's
 classes this week. Playing out so late with Mason puts me out of
 commission, you bet."
 
@@ -5221,9 +4819,7 @@ their firm square-tipped fingers.
 
 An idea struck Peter. "I wonder what Joanna would say to that!" He
 rushed in the house, seized a piece of paper and a pen and told her
-about it. <span id="calibre_link-200" page-number="145"
-page-name="Page:There Is Confusion.djvu/151" page-index="151"
-page-quality="3" title="Page:There_Is_Confusion.djvu/151"></span>
+about it. 
 
 "Of course, Jan, I don't expect you to marry me if I can't take care of
 you. You wouldn't anyway, you're not like Sylvia. That's not a slam,
@@ -5265,10 +4861,7 @@ that the man who won Joanna must be even stronger, more determined than
 she.
 
 She did not know much about marriage. She had not only the usual
-virginal ignorance of many American girls, she had <span
-id="calibre_link-201" page-number="146"
-page-name="Page:There Is Confusion.djvu/152" page-index="152"
-page-quality="3" title="Page:There_Is_Confusion.djvu/152"></span>also a
+virginal ignorance of many American girls, she had also a
 remarkable lack of curiosity on the matter. But she knew vaguely that
 the man was supposed to be the head. How could she, Joanna Marshall,
 ever surrender to a man who was less than she in any respect? Her
@@ -5301,10 +4894,7 @@ But ordinary tame mediocrity!
 
 Besides, colored people had had enough of that. Not for Joanna!
 
-It must not be thought that at this time she had any inten<span
-id="calibre_link-202" page-number="147"
-page-name="Page:There Is Confusion.djvu/153" page-index="153"
-page-quality="3" title="Page:There_Is_Confusion.djvu/153"></span>tion of
+It must not be thought that at this time she had any intention of
 relinquishing her work after marriage. But it was for that reason that
 she wanted Peter to come out of the herd. She saw the two of them
 together, gracious, shining, perfect! She heard whispers:
@@ -5347,9 +4937,7 @@ somebody, zat you have ze great gift. And when they see you to danse,
 v'la!" He snapped his thin fingers. Joanna, he told his assistant,
 Madame Céleste, was the best pupil he'd ever had.
 
-<span id="calibre_link-203" page-number="148"
-page-name="Page:There Is Confusion.djvu/154" page-index="154"
-page-quality="3" title="Page:There_Is_Confusion.djvu/154"></span>"You
+"You
 look at her and she is ze child, so grave, so *sage*. In another moment
 she is like a wild creature, a Bacchante. Onless zey are all fools,
 these *Américains*, they take her up, *hein* Céleste?"
@@ -5391,9 +4979,7 @@ the other applicants.
 
 "Say, what do you suppose she is?"
 
-<span id="calibre_link-204" page-number="149"
-page-name="Page:There Is Confusion.djvu/155" page-index="155"
-page-quality="3" title="Page:There_Is_Confusion.djvu/155"></span>"Must
+"Must
 be a South American."
 
 "She ain't, she's a nigger or I don't know one."
@@ -5436,10 +5022,7 @@ being suddenly brought to book.
 
 The week before Christmas a note came from Peter.
 
-"Of course I've been planning as usual to come home, Jan. <span
-id="calibre_link-205" page-number="150"
-page-name="Page:There Is Confusion.djvu/156" page-index="156"
-page-quality="3" title="Page:There_Is_Confusion.djvu/156"></span>But we
+"Of course I've been planning as usual to come home, Jan. But we
 haven't been hitting it off so well lately. Thought I'd better write and
 see if you really wanted me to."
 
@@ -5478,9 +5061,7 @@ returned." He bent to kiss her.
 She turned him a cold cheek, which to her surprise he kissed without
 expostulation.
 
-<span id="calibre_link-206" page-number="151"
-page-name="Page:There Is Confusion.djvu/157" page-index="157"
-page-quality="3" title="Page:There_Is_Confusion.djvu/157"></span>He
+He
 crossed the room, sat down and looked at her. "H'm, how stagy we are in
 that get-up!"
 
@@ -5521,16 +5102,13 @@ about it. She sprang up lightly, began to clear away.
 He lounged in his chair. "Oh, come, Joanna, I'm used to being waited on,
 not doing the waiting."
 
-<span id="calibre_link-207" page-number="152"
-page-name="Page:There Is Confusion.djvu/158" page-index="158"
-page-quality="3" title="Page:There_Is_Confusion.djvu/158"></span>She
+She
 stared at him then. "Well, good heavens! What on earth has been
 happening to you in Philadelphia?"
 
 He spoke from a contented reminiscence. "When I have dinner at Maggie
 Neal's, she's not everlastingly asking me to do this and do that. 'Sit
-still, Peter,' she says, 'this isn't a man's work.<span
-class="calibre35">'</span>"
+still, Peter,' she says, 'this isn't a man's work.'"
 
 "Maggie Neal has her own methods with her men friends. Personally I
 prefer to have mine wait on me."
@@ -5550,7 +5128,7 @@ the next morning.
 "What do we do to-morrow?" Peter asked.
 
 "Remember you said you wanted to hear
-*[Aïda](https://en.wikisource.org/wiki/Aida "Aida")?* I 'phoned them to
+*Aïda?* I 'phoned them to
 reserve tickets for us for to-morrow's matinée. But they have to be
 called for. Better go down there first thing in the morning, Peter."
 
@@ -5565,10 +5143,7 @@ and not busy, there's no man in the world I'd do it for."
 "Married women do it for their husbands."
 
 "Sylvia doesn't do it for Brian. He wouldn't dream of asking her.
-Besides, that's different. And, anyway, we're <span
-id="calibre_link-208" page-number="153"
-page-name="Page:There Is Confusion.djvu/159" page-index="159"
-page-quality="3" title="Page:There_Is_Confusion.djvu/159"></span>not
+Besides, that's different. And, anyway, we're not
 married yet. Nor likely to be, if we don't get along any better than
 this. Whatever's come over you, Peter?"
 
@@ -5603,10 +5178,7 @@ outfit which emphasized the distinction of his carriage, set off his
 handsome face. Several people looked at him on the crowded street.
 Joanna herself stole several glances sidewise.
 
-He caught her at it. "Joanna Marshall, if you look at me <span
-id="calibre_link-209" page-number="154"
-page-name="Page:There Is Confusion.djvu/160" page-index="160"
-page-quality="3" title="Page:There_Is_Confusion.djvu/160"></span>again
+He caught her at it. "Joanna Marshall, if you look at me again
 like that, just once more, mind you, I'll snatch you up in my arms this
 minute and kiss you."
 
@@ -5616,12 +5188,10 @@ minute and kiss you."
 struggled. Wouldn't the people stare?"
 
 Joanna giggled. "Can't you see the headlines in the papers to-morrow?
-'Burly 'Burly Negro Attacks Strapping Negress on Broadway!<span
-class="calibre35">'</span>"
+'Burly 'Burly Negro Attacks Strapping Negress on Broadway!'"
 
 "Yes, and the small type underneath, 'An interested crowd gathered about
-a pair of dusky combatants yesterday. A Negro and Negress<span
-class="calibre36">——</span>—<span class="calibre35">'</span>"
+a pair of dusky combatants yesterday. A Negro and Negress———'"
 
 Joanna interrupted: "Both of them spelt with a small 'n,' remember! Here
 we are at the Opera."
@@ -5633,15 +5203,11 @@ forever."
 In her heart she loved him. "Oh, Peter, be like this always," she
 prayed.
 
-<span id="calibre_link-210" page-number="155"
-page-name="Page:There Is Confusion.djvu/161" page-index="161"
-page-quality="3" title="Page:There_Is_Confusion.djvu/161"></span>
+
 
 Chapter XVII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">hey</span> enjoyed the opera and sang snatches of
+They enjoyed the opera and sang snatches of
 it coming home as they walked to the subway. Once in the express train,
 however, Joanna lapsed into sadness.
 
@@ -5652,7 +5218,7 @@ believe I'm the least bit discouraged."
 She told him of her trips with Bertully. "I didn't mind those girls
 calling me 'nigger.' That was sheer ill-breeding. Remember what we used
 to say when we were children when they called us names?" She recited it:
-<span class="calibre35">"</span>'Sticks and stones may break my bones,
+"'Sticks and stones may break my bones,
 but names will never hurt me.' What I minded was that they couldn't
 dream of my being accepted. Thought I had a nerve even to ask it."
 
@@ -5669,10 +5235,7 @@ business,—college, my everlasting grind, my poverty, this confounded
 prejudice. If I want to get a chance to study a certain case and it's in
 a white hospital you'd think I'd committed a crime. As though diseases
 picked out different races! I'm a good surgeon, I'll swear I am, but
-I've got so I don't care whether <span id="calibre_link-212"
-page-number="156" page-name="Page:There Is Confusion.djvu/162"
-page-index="162" page-quality="3"
-title="Page:There_Is_Confusion.djvu/162"></span>I get my degree or not.
+I've got so I don't care whether I get my degree or not.
 You can't imagine all the petty unfairness about me. Only the other day
 the barber refused to shave me in the college barber-shop. Your own
 cousin, John Talbert, is a Zeta Gamma man if ever there was one—that's
@@ -5708,10 +5271,7 @@ injustice!"
 "But, Peter," Joanna argued, "you wouldn't let that interfere with your
 whole career, change your whole life?"
 
-"Why shouldn't I? There're plenty of pleasanter ways to <span
-id="calibre_link-213" page-number="157"
-page-name="Page:There Is Confusion.djvu/163" page-index="163"
-page-quality="3" title="Page:There_Is_Confusion.djvu/163"></span>earn a
+"Why shouldn't I? There're plenty of pleasanter ways to earn a
 living. Why should I take any more of their selfish dog-in-the-manger
 foolishness? I can make all the money I want with Tom Mason. If you
 aren't satisfied for me to be an accompanist, I could go into
@@ -5743,10 +5303,7 @@ despair possessed her, as she saw the beautiful fabric of their future
 felled wantonly to the ground. For the sake of a few narrow pedants!
 
 "Peter, Peter, we've got to make our own lives. We can't let these
-people ruin us." She felt her knees trembling under <span
-id="calibre_link-214" page-number="158"
-page-name="Page:There Is Confusion.djvu/164" page-index="164"
-page-quality="3" title="Page:There_Is_Confusion.djvu/164"></span>her.
+people ruin us." She felt her knees trembling under her.
 "We're both tired and beside ourselves. Come and see me to-morrow, will
 you?"
 
@@ -5778,7 +5335,7 @@ She thought he'd been worrying over their quarrel. "You poor boy, you
 didn't need to take it that hard."
 
 He stared at her. "Take what, that hard? Oh, our talk! That didn't keep
-me awake. I spent the night at 'Jake's.<span class="calibre35">'</span>"
+me awake. I spent the night at 'Jake's.'"
 
 "Jake's" was the cabaret, a cheap one, in which he had played years ago.
 
@@ -5789,9 +5346,7 @@ playing there."
 Harry Portor; he spent the night there, too. There was a whole gang of
 us."
 
-<span id="calibre_link-215" page-number="159"
-page-name="Page:There Is Confusion.djvu/165" page-index="165"
-page-quality="3" title="Page:There_Is_Confusion.djvu/165"></span>Clearly
+Clearly
 she must get to the bottom of this. While she had been tossing
 sleepless, he had been in a cabaret, dancing with cheap women, laughing,
 drinking perhaps.
@@ -5829,13 +5384,11 @@ She dropped the ring in his pocket. "I mean I can't consider a man for a
 husband who throws away his career because of the meanness of a few
 white men. Of a man who sits all night in a low cabaret where every
 loafer in New York can point him out and say, 'That's the kind of fellow
-Joanna Marshall goes about with.<span class="calibre35">'</span>"
+Joanna Marshall goes about with.'"
 
 "Oh, I see, it isn't for my sweet sake, then!"
 
-<span id="calibre_link-216" page-number="160"
-page-name="Page:There Is Confusion.djvu/166" page-index="166"
-page-quality="3" title="Page:There_Is_Confusion.djvu/166"></span>She
+She
 pushed him toward the door. "Go, Peter! Go!"
 
 On New Year's morning he came back, humble, contrite. "I was a fool,
@@ -5880,24 +5433,18 @@ as he arrived in Philadelphia.
 
 "Joanna, I was wrong," he had written contritely, "I confess had got
 away somewhat from your manner of thinking, and I suppose I was a little
-sore, too,—your life seems <span id="calibre_link-217" page-number="161"
-page-name="Page:There Is Confusion.djvu/167" page-index="167"
-page-quality="3" title="Page:There_Is_Confusion.djvu/167"></span>so
+sore, too,—your life seems so
 full. Sometimes I think there is nothing I can bring you. But I do love
 you, Joanna. You must always believe that and I think you love me, too.
 We were meant for each other. I am sure life would hold for us the
 deepest, most irremediable sorrow if we separated. Whether we are
 engaged or not, just tell me that you love me still and I can be happy."
 
-<span id="calibre_link-218" page-number="162"
-page-name="Page:There Is Confusion.djvu/168" page-index="168"
-page-quality="3" title="Page:There_Is_Confusion.djvu/168"></span>
+
 
 Chapter XVIII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">f</span> she had only answered the letter, then,
+If she had only answered the letter, then,
 that very moment!
 
 But she had said to her impulse: "No, I must wait. I can't let him off
@@ -5923,10 +5470,7 @@ the promise of an interview with one of the season's favorites.
 
 "I'll be able to see you early Thursday evening," the famous woman
 wrote. "You may expect either a note or a telephone call from me." At
-one time such a promise would have sent <span id="calibre_link-220"
-page-number="163" page-name="Page:There Is Confusion.djvu/169"
-page-index="169" page-quality="3"
-title="Page:There_Is_Confusion.djvu/169"></span>Joanna into the seventh
+one time such a promise would have sent Joanna into the seventh
 ecstasy, without impairing her confidence. But recent discouragements,
 persistent—and for her unusual, phenomena—had rendered her timid. She
 was nervous. Her assurance wavered. She spent the whole day going
@@ -5963,9 +5507,7 @@ she had seen her own people hindered, checked on account of color, but
 hardly any of the things she had greatly wanted had been affected for
 that cause. She had had money enough to have her dancing and music
 lessons—the very fact that she had had to take separate and special
-<span id="calibre_link-221" page-number="164"
-page-name="Page:There Is Confusion.djvu/170" page-index="170"
-page-quality="3" title="Page:There_Is_Confusion.djvu/170"></span>lessons
+lessons
 from Bertully meant to her that some special and separate way would be
 arranged whereby she would become a dancer on the stage.
 
@@ -5997,8 +5539,7 @@ second-rate! Where is that letter of his? I might just as well answer it
 now as at any other time."
 
 In spite of her ugly mood a little wave of tenderness welled up in her
-heart as she read,—"Just tell me that you do love me still,<span
-class="calibre36">——</span>—"
+heart as she read,—"Just tell me that you do love me still,———"
 
 "Oh, Peter, Peter," she murmured, "if I tell you that you'll never
 change, never push on. If only you could be strong and let me bring my
@@ -6007,15 +5548,13 @@ troubles to you."
 It would never do to let him know how completely she was discouraged.
 And equally she could not let him know how dear, weakness and all, he
 was to her. She would make her love conditional. "If you want me to love
-you, Peter,<span class="calibre36">——</span>—"
+you, Peter,———"
 
-<span id="calibre_link-222" page-number="165"
-page-name="Page:There Is Confusion.djvu/171" page-index="171"
-page-quality="3" title="Page:There_Is_Confusion.djvu/171"></span>She
+She
 hated that, but some day they would both be glad of it. She actually
 cried for the two of them as she wrote her stern little fiction:
 
-"<span class="smallcaps">Dear Peter</span>:
+"Dear Peter:
 
 "No, I don't love you as you are. The man I marry must be a man worth
 while like my father or Philip. I couldn't stand the thought of spending
@@ -6026,7 +5565,7 @@ get to work in earnest. Happy New Year.
 
 "Sincerely,
 
-"<span class="smallcaps">Joanna.</span>"
+"Joanna."
 
 She read it over and over, totally blind to its supreme egotism. Then
 she sealed it and, sniffling a little—more like a child than like an
@@ -6043,8 +5582,7 @@ She remembered her engagement with the *artiste*. "But that's not what's
 making me sick," she told herself after a momentary probing of her
 self-consciousness. Then recalling the letter to Peter, she got up and
 walked bare-footed across the room to the desk, shivering a little as
-the chilly January morning air struck at her, billowing her thin <span
-class="wst-tooltip" title="or 'night-dress'">nightdress</span>. She
+the chilly January morning air struck at her, billowing her thin nightdress. She
 thought she would read it again, but the envelope was sealed. It slipped
 out of her hand and she ran back to bed again, cuddling luxuriously.
 
@@ -6052,10 +5590,7 @@ out of her hand and she ran back to bed again, cuddling luxuriously.
 herself: "If I do send it I'll write him a sweet, sweet letter soon."
 
 After breakfast she posted it. It fell with a heaviness into the box
-that made her uneasy. "I'll write him again to-<span
-id="calibre_link-223" page-number="166"
-page-name="Page:There Is Confusion.djvu/172" page-index="172"
-page-quality="3" title="Page:There_Is_Confusion.djvu/172"></span>night,"
+that made her uneasy. "I'll write him again to-night,"
 she thought. "Poor Peter! He'll be disappointed, I suppose."
 
 But the night brought her several offers to sing in Southern schools
@@ -6072,25 +5607,23 @@ to-night I shouldn't quarrel with you one moment."
 
 She quoted lines from one of Goethe's poems.
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>Ein blick von
-deinen Augen in die meinen,<span class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Ein Kuss von deinen Mund auf
-meinem Munde:<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Ein blick von
+deinen Augen in die meinen,  
+Ein Kuss von deinen Mund auf
+meinem Munde:  
+  
+
 
 She hesitated a moment, a little aghast at this disclosure of her
 feelings. "But I might just as well, he deserves it. Dear, dear Peter,
 if I could just see you!"
 
-She ended, smiling shamefacedly at her own abandon<span
-class="calibre36">——</span>—
+She ended, smiling shamefacedly at her own abandon———
 
-<span class="ws-poem-line1"><span class="wst-fqm">"</span>Mein einzig
-Glück auf Erden ist dein Wille"<span class="calibre36">——</span>—<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+"Mein einzig
+Glück auf Erden ist dein Wille"———  
+  
+
 
 She might have stopped in Philadelphia on her way South, but she
 couldn't after that letter. In Richmond she received a note from Peter
@@ -6105,13 +5638,9 @@ very busy now but I am going to write you a final letter very soon.
 
 "Sincerely,
 
-"<span class="smallcaps">Peter.</span>"
+"Peter."
 
-<span id="calibre_link-224" page-number="167"
-page-name="Page:There Is Confusion.djvu/173" page-index="173"
-page-quality="3" title="Page:There_Is_Confusion.djvu/173"></span><span
-class="calibre35">"</span>'A final letter,<span
-class="calibre35">'</span>" she quoted to herself. "What a funny thing
+"'A final letter,'" she quoted to herself. "What a funny thing
 to say! Oh, Peter! And I wanted, I needed a real letter, a love-letter!"
 Her natural reasonableness helped her. "It's my own fault. I suppose he
 feels like I feel sometimes, don't-care-y. But 'a final letter.' I
@@ -6129,7 +5658,7 @@ bulky letter from Sylvia. "He doesn't mean it, Joanna, of course, but I
 had to send it." Thus her sister's note. Puzzled, she read the
 inclosure, which turned out to be a letter from Peter to Sylvia.
 
-"<span class="smallcaps">Dear Sylvia</span>:
+"Dear Sylvia:
 
 "I am writing to let you know that I am to be married in June. Joanna
 told me she didn't love me and so I am going to marry Maggie Neal; she's
@@ -6138,17 +5667,13 @@ I've given her.
 
 "Sincerely,
 
-"<span class="smallcaps">Peter.</span>"
+"Peter."
 
-<span id="calibre_link-225" page-number="168"
-page-name="Page:There Is Confusion.djvu/174" page-index="174"
-page-quality="3" title="Page:There_Is_Confusion.djvu/174"></span>
+
 
 Chapter XIX
 
-<span class="dropinitial"><span
-class="dropinitial-initial">O</span></span><span
-class="wst-uppercase1">ne</span> of the mysteries of the ages will be
+One of the mysteries of the ages will be
 solved with the answer to the question: Why do men consider women
 incalculable? Peter had been hurt by Joanna's indifference again and
 again, she had refused a dozen times to marry him, she had scolded him,
@@ -6170,15 +5695,12 @@ entered her little sitting-room.
 He showed her the letter, striding up and down the room as she read it.
 
 She lifted her head to say to him: "She doesn't mean it; you know
-Joanna, always making a mountain out of a <span class="wst-tooltip"
-title="or 'mole-hill'">molehill</span>."
+Joanna, always making a mountain out of a molehill."
 
 Instead she heard herself saying: "How could she possibly write such
 things to you—you've always been so kind."
 
-<span id="calibre_link-227" page-number="169"
-page-name="Page:There Is Confusion.djvu/175" page-index="175"
-page-quality="3" title="Page:There_Is_Confusion.djvu/175"></span>"Too
+"Too
 kind," he muttered. "I tell you what, Maggie, Joanna's got no heart,
 she's all head, all ideas and if you don't see and act her way, she's
 got no use for you."
@@ -6217,10 +5739,7 @@ Neal, alone and *déclassée*, into Mrs. Peter Bye, a model of
 respectability.
 
 That he had no money, no accepted means of making a livelihood she
-understood would mean nothing. He was a <span id="calibre_link-228"
-page-number="170" page-name="Page:There Is Confusion.djvu/176"
-page-index="176" page-quality="3"
-title="Page:There_Is_Confusion.djvu/176"></span>Bye and she as his wife
+understood would mean nothing. He was a Bye and she as his wife
 could go anywhere. She would show Alice Talbert! And afterwards when he
 got his degree!
 
@@ -6257,15 +5776,10 @@ why I've stuck to the old school as long as I have, when here I am all
 set with this nice easy job to my hand. Might as well get along with as
 little trouble as possible. The world owes me a living."
 
-<span class="wst-asterisks">\*<span class="wst-gap"></span>\*<span
-class="wst-gap"></span>\*<span class="wst-gap"></span>\*<span
-class="wst-gap"></span>\*</span> <span id="calibre_link-229"
-page-number="171" page-name="Page:There Is Confusion.djvu/177"
-page-index="177" page-quality="3"
-title="Page:There_Is_Confusion.djvu/177"></span>Afterwards, back in his
+\*\*\*\*\* Afterwards, back in his
 room with the green iron bedstead and the Bye Bible, he felt a
 difference, a sense of let-downness. He threw himself across the bed and
-<span class="wst-tooltip" title="[sic] 'groaned.'">groaned</span>
+groaned
 
 "Joanna, how could you?"
 
@@ -6297,12 +5811,9 @@ lean brown hands and went to sleep. Perhaps it would not be exact to say
 he cried himself to sleep, but there were certainly tears that burnt and
 scalded behind his eyelids.
 
-His landlady complained of the torn paper the next morning. <span
-class="calibre35">"</span>'Tisn't as though you didn't have a nice
+His landlady complained of the torn paper the next morning. "'Tisn't as though you didn't have a nice
 waste-paper basket ready and waitin', Mr. Bye." As she finished
-speak<span id="calibre_link-230" page-number="172"
-page-name="Page:There Is Confusion.djvu/178" page-index="178"
-page-quality="3" title="Page:There_Is_Confusion.djvu/178"></span>ing she
+speaking she
 handed him Joanna's letter containing Goethe's poem. The tenderness, the
 real love that blazed in the beautiful lines overwhelmed him. He could
 not tell her the truth after a letter like that. So he wrote her,
@@ -6310,16 +5821,12 @@ postponing but hinting, he fondly believed, at the news which he must
 soon break to her. A month later, finding himself still unequal to the
 task, he wrote to Sylvia.
 
-<span id="calibre_link-231" page-number="173"
-page-name="Page:There Is Confusion.djvu/179" page-index="179"
-page-quality="3" title="Page:There_Is_Confusion.djvu/179"></span>
+
 
 Chapter XX
 
-<span class="dropinitial"><span
-class="dropinitial-initial">S</span></span><span
-class="wst-uppercase1">ylvia</span> had written. "He doesn't mean it, of
-course"<span class="calibre36">——</span>—
+Sylvia had written. "He doesn't mean it, of
+course"———
 
 But Joanna knew better. Even while dumbfounded she stood staring at the
 note, trying to believe there must be some mistake, her heart, her every
@@ -6348,10 +5855,7 @@ At first she thought she would go to him. Then the fear that he might
 not want to see her, might even refuse to see her, overcame her. That
 humiliation she could never endure.
 
-She sat down and wrote him a long letter, her pen flying <span
-id="calibre_link-233" page-number="174"
-page-name="Page:There Is Confusion.djvu/180" page-index="180"
-page-quality="3" title="Page:There_Is_Confusion.djvu/180"></span>over
+She sat down and wrote him a long letter, her pen flying over
 the page like something bewitched. It could not move fast enough to
 empty her heart of all she had to tell. If she could only make clear to
 him that she had "chastened" him because she loved him. How patronizing,
@@ -6387,9 +5891,7 @@ audience which wondered vaguely what had happened to make Joanna
 Marshall different. Somehow she packed her trunk, thanked the persistent
 youth who had constituted himself her cavalier, and boarded the Jim Crow
 car. Her cavalier for all his persistence had been unable to obtain
-<span id="calibre_link-234" page-number="175"
-page-name="Page:There Is Confusion.djvu/181" page-index="181"
-page-quality="3" title="Page:There_Is_Confusion.djvu/181"></span>for her
+for her
 Pullman accommodations. After Washington she fell to wondering what it
 used to be like in other days, less than a year ago, when she would be
 coming up this way, through Baltimore, Wilmington, past Chester, secure
@@ -6401,8 +5903,7 @@ themselves. She toyed with the idea. Of course *she* couldn't; that sort
 of relief was not for her. In the first place it was cowardly. With her
 usual mental clarity she visualized the colored papers of Harlem. There
 would be notices telling how the "gifted singer, Joanna Marshall,
-daughter of Joel Marshall, died by her own hand<span
-class="calibre36">——</span>—"
+daughter of Joel Marshall, died by her own hand———"
 
 Her mind lingered over it, painting in new details, consciously
 withdrawing as far as possible from the real cause of her grief.
@@ -6421,15 +5922,11 @@ very little. The two girls said nothing about Peter directly.
 account of her trip. Her roving eyes and twitching hands had already
 betrayed her need. "Help me to get to sleep or I think I shall go mad."
 
-<span id="calibre_link-235" page-number="176"
-page-name="Page:There Is Confusion.djvu/182" page-index="182"
-page-quality="3" title="Page:There_Is_Confusion.djvu/182"></span>
+
 
 Chapter XXI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">J</span></span><span
-class="wst-uppercase1">oanna</span> was in agony. Her life, hitherto a
+Joanna was in agony. Her life, hitherto a
 thing of light and laughter and pleasant work, became a nightmare of
 regret and morbid introspection. She could not blame herself enough.
 Nothing that Sylvia could say would make her speak unkindly of Peter.
@@ -6455,10 +5952,7 @@ Joanna, poor creature, was doomed by her very virtues. That same
 single-mindedness which had made her so engrossed in her art, now proved
 her undoing. Her mind, shocked out of its normal complacence, perceived
 and dwelt on a new aspect of life, an entirely different and undreamed
-of sense of values. For the first time in her life she <span
-id="calibre_link-237" page-number="177"
-page-name="Page:There Is Confusion.djvu/183" page-index="183"
-page-quality="3" title="Page:There_Is_Confusion.djvu/183"></span>saw the
+of sense of values. For the first time in her life she saw the
 importance of human relationships. What did a knowledge of singing,
 dancing, of any of the arts amount to without people, without parents,
 brothers, sisters, lovers to share one's failures, one's triumphs?
@@ -6492,10 +5986,7 @@ force, you whatever it is that rules things." Walking, riding, any
 action at all mechanical she utilized in concentrating on her "desire to
 have everything come right."
 
-In the mornings, weak and spent with the wakefulness of <span
-id="calibre_link-238" page-number="178"
-page-name="Page:There Is Confusion.djvu/184" page-index="184"
-page-quality="3" title="Page:There_Is_Confusion.djvu/184"></span>her
+In the mornings, weak and spent with the wakefulness of her
 white night, she picked up her little slim Bible and read portions of
 the Psalms. The beautiful words not only soothed her but brought with
 them a wonderment at the passion and pain which they revealed. "David,
@@ -6529,9 +6020,7 @@ whom she had to deal with; Joanna thought she could treat him as she
 pleased. Then when he got tired of it he threw up the whole thing
 without any warning, the silly ass."
 
-<span id="calibre_link-239" page-number="179"
-page-name="Page:There Is Confusion.djvu/185" page-index="185"
-page-quality="3" title="Page:There_Is_Confusion.djvu/185"></span>"Better
+"Better
 not let Joanna hear you call him that," Sylvia interrupted.
 
 He went on unnoticing. "Of course, what Joanna doesn't realize is that
@@ -6563,9 +6052,7 @@ beings, she thinks they have a high destiny to perform and so she drives
 Peter into a course of action which left to himself he would never
 pursue. I'll bet a month's salary Peter had no intention of studying
 surgery until he found out he had to do something extraordinary to win
-Joanna. Now, just <span id="calibre_link-240" page-number="180"
-page-name="Page:There Is Confusion.djvu/186" page-index="186"
-page-quality="3" title="Page:There_Is_Confusion.djvu/186"></span>when
+Joanna. Now, just when
 each needs the most sympathy from the other, when Joanna's plans are, I
 suspect, going awry, and when Peter is suffering most from his color
 complex, the two let their frazzled nerves carry them into a jangle and
@@ -6601,9 +6088,7 @@ could thus have analyzed it, for she had rather deliberately withheld
 her attention from the basic facts of life. "Plenty of time for that,"
 she had told herself gayly, a little proud perhaps of a virginal
 fastidiousness which kept her ignorant as well as innocent. Yet bit by
-bit she had <span id="calibre_link-241" page-number="181"
-page-name="Page:There Is Confusion.djvu/187" page-index="187"
-page-quality="3" title="Page:There_Is_Confusion.djvu/187"></span>built
+bit she had built
 up the idea of a shrine into which, not unwillingly, she should enter
 with Peter some day. She had never even vaguely thought of any one else
 as a companion. Her whole concept of love and marriage for herself
@@ -6613,15 +6098,11 @@ And now Peter was gone—and his departure had opened up this sea, this
 bottomless pit of torment. This, this was life. "This is being grown
 up," she told herself through endless midnight watches.
 
-<span id="calibre_link-242" page-number="182"
-page-name="Page:There Is Confusion.djvu/188" page-index="188"
-page-quality="3" title="Page:There_Is_Confusion.djvu/188"></span>
+
 
 Chapter XXII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">en</span> months later Tom Mason leaned back
+Ten months later Tom Mason leaned back
 against the red plush of the car seat and jingled some coins in his
 pocket.
 
@@ -6640,7 +6121,7 @@ gettin' what I can out of them. When I've made my pile, if I can't spend
 it here the way I please, Annie and me can pick up and go to South
 America or France. I hear they treat colored people all right there."
 
-"Treat colored people all right,<span class="calibre35">'</span>" Peter
+"Treat colored people all right,'" Peter
 mimicked. "What business has any one 'treating' us, anyway? The world's
 ours as much as it is theirs. And I don't want to leave America. It's
 mine, my people helped make it. These very orchards we're passing now
@@ -6653,9 +6134,7 @@ they come to lose them?"
 "Lose them? They never owned them. The black Byes were slaves of the
 white Byes."
 
-<span id="calibre_link-244" page-number="183"
-page-name="Page:There Is Confusion.djvu/189" page-index="189"
-page-quality="3" title="Page:There_Is_Confusion.djvu/189"></span>"Oh,
+"Oh,
 slaves! Oh, you mean they worked in the fields? Well, I guess that's
 different. Come on, here we are."
 
@@ -6695,10 +6174,7 @@ much, or some one whom she didn't think worth considering," he told
 himself, lowering.
 
 Mrs. Lea, leading him into the ballroom beyond, barely glanced at him.
-"See, the musicians are to sit behind those <span id="calibre_link-245"
-page-number="184" page-name="Page:There Is Confusion.djvu/190"
-page-index="190" page-quality="3"
-title="Page:There_Is_Confusion.djvu/190"></span>palms and the piano will
+"See, the musicians are to sit behind those palms and the piano will
 be completely banked with flowers. I'm expecting the decorators every
 moment. Your men will have to get here very early so as to get behind
 all this without being seen. I want the effect of music instead of
@@ -6738,10 +6214,7 @@ a medical student, not an entertainer. I came here for Mr. Mason, who is
 very busy. You may be sure I'll give him your instructions. Good-day,
 Mrs. Lea."
 
-He rushed out of the house, down to the station where, <span
-id="calibre_link-246" page-number="185"
-page-name="Page:There Is Confusion.djvu/191" page-index="191"
-page-quality="3" title="Page:There_Is_Confusion.djvu/191"></span>without
+He rushed out of the house, down to the station where, without
 waiting for Tom, he boarded the train. Not far from the West
 Philadelphia depot he pushed the bell of a certain house, flung open the
 unlocked door and rushed up a flight of stairs.
@@ -6775,10 +6248,7 @@ rush down to Tom's and tell him I can't come. I'm dead—see?—drowned,
 fallen in the Schuylkill. And see here, old fellow, afterwards we'll
 have a talk. I want everything, everything, mind you, that you can
 remember, every note, every bit of paper that bears on the work of these
-last ten months. And I'll show them—" he seemed to forget <span
-id="calibre_link-247" page-number="186"
-page-name="Page:There Is Confusion.djvu/192" page-index="192"
-page-quality="3" title="Page:There_Is_Confusion.djvu/192"></span>Morgan—
+last ten months. And I'll show them—" he seemed to forget Morgan—
 "with their damned talk of entertainers." Down the stairs he ran, still
 talking.
 
@@ -6815,10 +6285,7 @@ his father Meriwether say, lived long and married late.
 "Isaiah Bye, born 1830—a child of freedom." How proud they had been of
 that! Yes, that was his grandfather, he remembered now. And he had made
 a great deal of that freedom. Meriwether had often dwelt with pride on
-Isaiah's <span id="calibre_link-248" page-number="187"
-page-name="Page:There Is Confusion.djvu/193" page-index="193"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/193"></span>learning, his school,
+Isaiah's learning, his school,
 his property, his "half-interest," Meriwether had said grandiloquently,
 in a bookshop. Peter could hear his father talking now.
 
@@ -6842,8 +6309,7 @@ at his great-uncle Peter's. The face, perfectly black, looked out from
 its faded red-plush frame with that immobile look of dignity which only
 black people can attain. "I have made the most of myself," the proud old
 face seemed to say. "My father was a slave, but I am a teacher, a leader
-of men. My son shall be a great healer and my son's son<span
-class="calibre36">——</span>—"
+of men. My son shall be a great healer and my son's son———"
 
 Peter put the open Bible carefully on the table and took out a
 cigarette. But he held it a long time unlighted.
@@ -6854,9 +6320,7 @@ himself after his mother's death, a small placid boy, perfectly willing
 to stay out of school. Until he met Joanna. There was his term of
 service in the butcher-shop and himself again perfectly willing to be
 the butcher's assistant. Until Joanna's questioning had made him declare
-м <span id="calibre_link-249" page-number="188"
-page-name="Page:There Is Confusion.djvu/194" page-index="194"
-page-quality="3" title="Page:There_Is_Confusion.djvu/194"></span>for
+м for
 surgery. Once in college his whole impulse had been to get away from it
 all, not because he hadn't liked the work; he adored it, was fascinated
 by it. But the obstacles, prejudice, his very real dislike for white
@@ -6887,21 +6351,17 @@ His ladylady called up to him:
 He went downstairs, took down the receiver.
 
 "Hello, this is Mr. Bye, yes, this is Peter. Who's this speaking,
-please?<span class="nowrap"> </span><span class="nowrap">. . .</span>
+please? . . .
 
 "Oh—oh, yes, of course. Why—why, Maggie!"
 
 He had forgotten all about her!
 
-<span id="calibre_link-250" page-number="189"
-page-name="Page:There Is Confusion.djvu/195" page-index="195"
-page-quality="3" title="Page:There_Is_Confusion.djvu/195"></span>
+
 
 Chapter XXIII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">t</span> had been increasingly easy for him to
+It had been increasingly easy for him to
 forget her. When he had first broken with Joanna, when he had written
 her that virtuous letter, Maggie's rooms, Maggie's arms were a haven.
 She was always ready to listen, always sympathetic. She met his advances
@@ -6927,10 +6387,7 @@ Maggie had soon learned, was not a welcome topic. And Peter no longer
 went to his classes, so there was no possible theme there. Peter to his
 disgust found himself drawing unwilling contrasts between these seances
 and similar moments spent with Joanna. Had there ever been any silences?
-silences? If there were they were filled with <span
-id="calibre_link-252" page-number="190"
-page-name="Page:There Is Confusion.djvu/196" page-index="196"
-page-quality="3" title="Page:There_Is_Confusion.djvu/196"></span>all
+silences? If there were they were filled with all
 sorts of tingling thoughts and meanings. There was the night when Joanna
 leaned against him in Morningside Park. They had said nothing. But the
 very air about them was pulsing. How long ago all that seemed! Had it
@@ -6967,9 +6424,7 @@ first, and certainly even now she clung to him. Her very submissiveness
 would seem to indicate some depth of feeling. He remembered Maggie as
 being anything but yielding in their earlier days, and she had never
 apparently changed one iota in her resentment toward her husband. She
-<span id="calibre_link-253" page-number="191"
-page-name="Page:There Is Confusion.djvu/197" page-index="197"
-page-quality="3" title="Page:There_Is_Confusion.djvu/197"></span>was
+was
 making a remarkably good living from her connection with Madame
 Harkness, had bought the house in New York and was contributing to her
 mother. She could not be marrying him to be taken care of.
@@ -7002,9 +6457,7 @@ this once through the possibility of marriage with Philip. Instead
 Henderson Neal had closed this entrance to her, she had once believed,
 forever. She must not fail to take advantage of this new avenue.
 
-<span id="calibre_link-254" page-number="192"
-page-name="Page:There Is Confusion.djvu/198" page-index="198"
-page-quality="3" title="Page:There_Is_Confusion.djvu/198"></span>Already
+Already
 she was beginning to reap its value. Miss Alice Talbert, it is true,
 became colder than ever when Maggie's engagement to Peter was known. She
 told Arabelle Morton that she considered "Peter done for, ruined, if he
@@ -7037,9 +6490,7 @@ surgeon, Philadelphia would find that Mrs. Peter Bye had a long memory.
 Only Peter, who at first had agreed to marry in June, now some months
 later seemed in no haste to marry at all—that was the rub.
 
-<span id="calibre_link-255" page-number="193"
-page-name="Page:There Is Confusion.djvu/199" page-index="199"
-page-quality="3" title="Page:There_Is_Confusion.djvu/199"></span>When
+When
 she telephoned him on the day on which he had had his interview with
 Mrs. Lea, she made up her mind to hasten the marriage.
 
@@ -7078,10 +6529,7 @@ really frightens you, I can have him bound over to keep the peace. But
 we can't marry now, dear. I want to be able to take care of my—my wife.
 And if I go back to my classes, I'll need all the money I can lay hands
 on. I've lost so much time that I can't afford to do any outside work.
-I'll just live on what I've made with Mason. But <span
-id="calibre_link-256" page-number="194"
-page-name="Page:There Is Confusion.djvu/200" page-index="200"
-page-quality="3" title="Page:There_Is_Confusion.djvu/200"></span>that
+I'll just live on what I've made with Mason. But that
 will leave me pretty poor. You see, I've got to have five hundred
 dollars cold for my instruments."
 
@@ -7110,15 +6558,11 @@ good-by for the present. Aren't you going to kiss me, Maggie?"
 
 She held up her face for her dutiful kiss.
 
-<span id="calibre_link-257" page-number="195"
-page-name="Page:There Is Confusion.djvu/201" page-index="201"
-page-quality="3" title="Page:There_Is_Confusion.djvu/201"></span>
+
 
 Chapter XXIV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">J</span></span><span
-class="wst-uppercase1">oanna</span> stood on the steps of the New York
+Joanna stood on the steps of the New York
 Public Library, gazing at the paralysis of traffic which at the bidding
 of an autocratic policeman had fallen on the massed ranks of vehicles.
 Subconsciously she thought of a German story, "Germelshausen," in which
@@ -7145,9 +6589,7 @@ figure.
 Joanna had not noticed this at first but when she did she proposed going
 toward the front of the store "where there was more light."
 
-<span id="calibre_link-259" page-number="196"
-page-name="Page:There Is Confusion.djvu/202" page-index="202"
-page-quality="3" title="Page:There_Is_Confusion.djvu/202"></span>"Why
+"Why
 not come this way?" proposed the still affable saleswoman, pointing to
 the windows in the rear wall which also let in daylight. Yet when Joanna
 without answering had walked on to the front, she offered no further
@@ -7183,10 +6625,7 @@ bothered!' Just then you hove on the scene. Where you going?"
 "Some place to get a good dinner," Joanna told her, wondering why she
 looked different from the Vera Manning she used to know. Her clothes
 showed her usual careful, even modish taste, but her face looked
-hard—"reckless"—Joanna <span id="calibre_link-260" page-number="197"
-page-name="Page:There Is Confusion.djvu/203" page-index="203"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/203"></span>suddenly decided; that
+hard—"reckless"—Joanna suddenly decided; that
 was the word. She went on quickly: "See here, you work somewhere down in
 this neighborhood, don't you? Where do you suppose I can get something
 to eat, without walking a thousand miles for it?"
@@ -7225,10 +6664,7 @@ The two girls moved down Fortieth Street in the direction of Seventh
 Avenue.
 
 "You'd understand it better if you worked among them—white people you
-know," Vera told her seriously. "Of course <span id="calibre_link-261"
-page-number="198" page-name="Page:There Is Confusion.djvu/204"
-page-index="204" page-quality="3"
-title="Page:There_Is_Confusion.djvu/204"></span>I suppose there must be
+know," Vera told her seriously. "Of course I suppose there must be
 some decent ones, not the high-brow philanthropists and all that crowd,
 but people who have too much breeding, too much innate—well, niceness, I
 guess you'd call it, to make light of folks just because they're
@@ -7261,10 +6697,7 @@ graduate the same year as Harry Portor?"
 planned even before he went to college to get married as soon as he came
 out. But as soon as my mother—you know how color-struck she is—realized
 we were in earnest, up she went in the air. None of her children should
-marry a dark man. It only meant unhappiness. If Harley and I <span
-id="calibre_link-262" page-number="199"
-page-name="Page:There Is Confusion.djvu/205" page-index="205"
-page-quality="3" title="Page:There_Is_Confusion.djvu/205"></span>should
+marry a dark man. It only meant unhappiness. If Harley and I should
 have children they'd be brown and would have to be humiliated like all
 other colored children."
 
@@ -7300,10 +6733,7 @@ getting along famously.
 "Of course they think I'm white. There are a lot of young men in the
 office and I flirt with them outrageously. At first I did it only to
 annoy mother, she hated it so. You know, the funny thing is she doesn't
-like white people any better than <span id="calibre_link-263"
-page-number="200" page-name="Page:There Is Confusion.djvu/206"
-page-index="206" page-quality="3"
-title="Page:There_Is_Confusion.djvu/206"></span>I do—she just didn't
+like white people any better than I do—she just didn't
 want me to marry a dark man because, she says, in this country a white
 skin is such an asset."
 
@@ -7342,9 +6772,7 @@ tell you." She laughed recklessly. "I wish I were like you, Joanna."
 "Well, you know—here ever since you were little you've had Peter Bye
 right at your beck and call—you must have loved him, Jan, he was so
 everlastingly good-looking, and charming, too, we all thought. I
-remember he took me to a <span id="calibre_link-264" page-number="201"
-page-name="Page:There Is Confusion.djvu/207" page-index="207"
-page-quality="3" title="Page:There_Is_Confusion.djvu/207"></span>movie
+remember he took me to a movie
 one Christmas. Then you fussed with him or something—some of your
 high-brow stuff I suppose—and you send him off without winking an
 eyelash. How do you stand it?"
@@ -7382,10 +6810,7 @@ him.
 Oh, Peter! Peter!
 
 As she rode up Fifth Avenue under the starry reaches of the sky, beneath
-the tender budding of April trees, her desper<span id="calibre_link-265"
-page-number="202" page-name="Page:There Is Confusion.djvu/208"
-page-index="208" page-quality="3"
-title="Page:There_Is_Confusion.djvu/208"></span>ate longing quickened to
+the tender budding of April trees, her desperate longing quickened to
 a sudden resolve. She would write to Maggie—Maggie, who could not
 possibly love Peter. And even if she did, she could not love him as
 she—Joanna—loved him. Why, there had been Philip once, and then
@@ -7412,15 +6837,11 @@ Yes, she would do that very soon. And then maybe she would see Maggie
 Ellersley—on the street, or even go and call on her. Undoubtedly it was
 better to discuss such personal matters face to face.
 
-<span id="calibre_link-266" page-number="203"
-page-name="Page:There Is Confusion.djvu/209" page-index="209"
-page-quality="3" title="Page:There_Is_Confusion.djvu/209"></span>
+
 
 Chapter XXV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">W</span></span><span
-class="wst-uppercase1">hile</span> Joanna was sitting at her desk,
+While Joanna was sitting at her desk,
 Maggie Ellersley some fifty blocks away brooded over plans of her own.
 She had hoped, vainly as it turned out, that her absence from
 Philadelphia would quicken Peter's need of her. His very real regard for
@@ -7444,9 +6865,7 @@ to Peter for a way out. More than ever she was in the same trap in which
 she had found herself years ago when as a little girl she walked home
 with her mother from the dinners which she had eaten in some employer's
 house. Now, it was true, her surroundings were no longer dirty and she
-was no <span id="calibre_link-268" page-number="204"
-page-name="Page:There Is Confusion.djvu/210" page-index="210"
-page-quality="3" title="Page:There_Is_Confusion.djvu/210"></span>longer
+was no longer
 poor—she and her mother had all the money they needed and almost all
 that they wanted. Of lowly stock, Maggie had never cared in the least
 for the possession of riches. But the old loneliness, the old sense of
@@ -7479,9 +6898,7 @@ been! Loving him as she did she would have let her desire for mere
 respectability sink into second place, discounting the fact that she
 would have gained it anyhow by such a union. But Joanna had interfered,
 and then she had married Henderson Neal, a gambler, a *gambler* who had
-<span id="calibre_link-269" page-number="205"
-page-name="Page:There Is Confusion.djvu/211" page-index="211"
-page-quality="3" title="Page:There_Is_Confusion.djvu/211"></span>plunged
+plunged
 her further back than ever into the obscurity from which she was
 beginning to emerge.
 
@@ -7521,9 +6938,7 @@ innumerable lodge meetings.
 why you mope so about the house, anyway. Don't believe you've been
 anywhere since you've been here this trip—'cept to Madam Harkness'."
 
-<span id="calibre_link-270" page-number="206"
-page-name="Page:There Is Confusion.djvu/212" page-index="212"
-page-quality="3" title="Page:There_Is_Confusion.djvu/212"></span>Maggie
+Maggie
 murmured that she didn't care to go out, she had come home to rest.
 
 "Well, stay in the house all you want, chile. Long's I got Cousin Jinny
@@ -7558,9 +6973,7 @@ time, Maggie, and though I don't like my professors any better than I
 did before, I'm making the most of my return. There's only one thing
 that would keep me from finishing and that would be war. It seems
 foolish for a colored man to fight for America, but I believe I'd like
-to do it. <span id="calibre_link-271" page-number="207"
-page-name="Page:There Is Confusion.djvu/213" page-index="213"
-page-quality="3" title="Page:There_Is_Confusion.djvu/213"></span>Only I
+to do it. Only I
 want to pick up a commission somewhere. Not a chance for a colored
 fellow at Plattsburg, but some of the boys are whispering of a training
 camp for Negro officers at Des Moines. This is still *sub rosa*, so
@@ -7583,8 +6996,7 @@ had, as she put it, "scared up" something for him to eat, and the two
 sitting at the little dinner table had entered into a silent
 appreciation of kinship such as lonely Miss Susan had wanted ever since
 her sister's death. Peter had told her of his break with Joanna. "I
-can't talk much about that, Aunt Susan—maybe some other time<span
-class="calibre36">——</span>—"
+can't talk much about that, Aunt Susan—maybe some other time———"
 
 Her kind hand on his steadied him.
 
@@ -7597,10 +7009,7 @@ go into that. America makes me sick, you know, like I used to make you I
 guess, but darn it all, she is my country. My folks helped make her what
 she is even if they were slaves."
 
-Aunt Susan beamed on him. "Your great-grandfather <span
-id="calibre_link-272" page-number="208"
-page-name="Page:There Is Confusion.djvu/214" page-index="214"
-page-quality="3" title="Page:There_Is_Confusion.djvu/214"></span>fought
+Aunt Susan beamed on him. "Your great-grandfather fought
 in the Revolution, Peter, and two of your uncles, my brothers, were in
 the Civil War. If you enlist you'll only be following their example."
 
@@ -7639,9 +7048,7 @@ had received his apologies only with an odd glare. One last glance over
 his shoulder just before he went in showed the stranger staring fixedly
 at the front door as though to see who opened it.
 
-<span id="calibre_link-273" page-number="209"
-page-name="Page:There Is Confusion.djvu/215" page-index="215"
-page-quality="3" title="Page:There_Is_Confusion.djvu/215"></span>Mis'
+Mis'
 Sparrow let him in. Maggie was in the "settin' room" at the head of the
 stairs, she told him as she herself went out. He ran up to arrive at a
 landing so dark that he knocked over a chair. The door was only slightly
@@ -7678,12 +7085,9 @@ that really—but even if you do think me one I've come to ask you to
 release me. We—our affair has been a mistake, I had no business dragging
 you into it. I am sure you don't love me—why should you love anyone
 who's trifled with his life as I have? And I—I don't—you understand,
-Maggie, I have and always shall have the highest regard <span
-id="calibre_link-274" page-number="210"
-page-name="Page:There Is Confusion.djvu/216" page-index="216"
-page-quality="3" title="Page:There_Is_Confusion.djvu/216"></span>for
+Maggie, I have and always shall have the highest regard for
 you. There's nothing in the world I wouldn't do for you, for a girl of
-your fine qualities<span class="calibre36">——</span>—"
+your fine qualities———"
 
 "Except marry her," she thought.
 
@@ -7718,17 +7122,14 @@ and those two poor old ladies—her mother and Mis' Sparrow—she would die
 of it. She would die of sheer disappointment at being balked this second
 time of her constant desire.
 
-Peter stared at her in sick astonishment. "You mean it?" <span
-id="calibre_link-275" page-number="211"
-page-name="Page:There Is Confusion.djvu/217" page-index="217"
-page-quality="3" title="Page:There_Is_Confusion.djvu/217"></span>he
+Peter stared at her in sick astonishment. "You mean it?" he
 whispered. It had never crossed his mind that she cared for him like
 this. Subconsciously he thought, "Suppose this had been Joanna."
 
 Before Maggie could speak again, someone knocked on the door; one of
 Mrs. Ellersley's roomers stuck in a tousled head.
 
-<span class="calibre35">"</span>'Scuse me, Miss Maggie, I heard you-all
+"'Scuse me, Miss Maggie, I heard you-all
 talkin' in here, en they ain't no one else in the house. Jest wanted to
 tell you I'm runnin' down to the corner a minute en as I mislaid my key
 I'm goin' t' leave the latch up, if you-all don't mind."
@@ -7756,9 +7157,7 @@ not to join up somewheres and go to one of their protracted meetin's."
 Gradually the house had emptied itself with the exception of Maggie and
 this tousel-headed Mr. Simpson who usually left later than this. He had
 not seen Bye come out, but thought it likely the visitor had left in the
-quarter of an hour <span id="calibre_link-276" page-number="212"
-page-name="Page:There Is Confusion.djvu/218" page-index="218"
-page-quality="3" title="Page:There_Is_Confusion.djvu/218"></span>he had
+quarter of an hour he had
 spent in the saloon around the corner where he had swallowed an
 unaccustomed dram to fortify his intention.
 
@@ -7798,10 +7197,7 @@ slaves."
 "All who?"
 
 "All the early settlers, weren't they, the white ones, too, indentured
-servants, outcasts, outlaws, men driven for one <span
-id="calibre_link-277" page-number="213"
-page-name="Page:There Is Confusion.djvu/219" page-index="219"
-page-quality="3" title="Page:There_Is_Confusion.djvu/219"></span>reason
+servants, outcasts, outlaws, men driven for one reason
 or other from their own countries? But certain ones of them have always
 stood out, attained prominence."
 
@@ -7841,11 +7237,9 @@ what one scorns.
 She said to him evenly, "Henderson, let me go."
 
 But he pulled her closer to him. "I'll never let you go again. Either
-you'll come with me, or I'll<span class="calibre36">——</span>—"
+you'll come with me, or I'll———"
 
-<span id="calibre_link-278" page-number="214"
-page-name="Page:There Is Confusion.djvu/220" page-index="220"
-page-quality="3" title="Page:There_Is_Confusion.djvu/220"></span>"You'll
+"You'll
 what?"
 
 "I'll kill you." But the thought obviously had just come to him.
@@ -7887,10 +7281,7 @@ bit down, down into the soft flesh. Bewildered she saw the red blood
 spurting, gushing over her arm, her dress, a soft green dress which she
 had donned for Peter. Now it was turning in spots to a vivid red.
 
-He let go of the arm, looking at her with fascinated gaze. <span
-id="calibre_link-279" page-number="215"
-page-name="Page:There Is Confusion.djvu/221" page-index="221"
-page-quality="3" title="Page:There_Is_Confusion.djvu/221"></span>Slowly
+He let go of the arm, looking at her with fascinated gaze. Slowly
 she sank, turned her eyes toward him, saw him drop the knife and rush
 headlong out of the room.
 
@@ -7903,15 +7294,11 @@ blackness of what must be death.
 "He must have loved me even more than I loved Philip. What a pity that I
 have to die without letting Philip know how dearly I loved him."
 
-<span id="calibre_link-280" page-number="216"
-page-name="Page:There Is Confusion.djvu/222" page-index="222"
-page-quality="3" title="Page:There_Is_Confusion.djvu/222"></span>
+
 
 Chapter XXVI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">A</span></span> <span
-class="wst-uppercase1">Few</span> moments later Mr. Simpson came rushing
+A Few moments later Mr. Simpson came rushing
 up the front steps. He tried the door gingerly and found to his relief
 that it was not locked. That meant Mrs. Ellersley had not yet returned
 to chide him for his carelessness. Miss Maggie now was different; she
@@ -7936,10 +7323,7 @@ brown object which protruded from beyond the table and which
 looked—though this, he knew, was imagination—like a hand. He bent over
 it, touched it, followed it with eyes and fingers to an arm dripping and
 scarlet with blood and beyond the arm a face golden and immobile. Beyond
-the head lay still another of those small strange objects. <span
-id="calibre_link-282" page-number="217"
-page-name="Page:There Is Confusion.djvu/223" page-index="223"
-page-quality="3" title="Page:There_Is_Confusion.djvu/223"></span>Only
+the head lay still another of those small strange objects. Only
 this was neither bright nor shining; it was red, a vivid red and the
 handle which he touched with a shaking finger was sticky.
 
@@ -7980,9 +7364,7 @@ the handle—"Chilled steel, England, Peter Bye"—rested there stricken.
 "Ought to be able to trace the murderer awful quick, don't you think,
 ma'am? This man Bye would know who he sold them knives to."
 
-<span id="calibre_link-283" page-number="218"
-page-name="Page:There Is Confusion.djvu/224" page-index="224"
-page-quality="3" title="Page:There_Is_Confusion.djvu/224"></span>Without
+Without
 answering she cut away the cloth, used her handkerchief—worthless for
 this—to stanch the blood. "Find me a towel, there must be one
 somewhere." If Peter had done this she must save Maggie in order to save
@@ -8018,9 +7400,7 @@ Now she must keep him out of the sitting-room. Her confusion escaped
 him, but Mr. Simpson hovering in the background had heard the question
 and slipping out returned with the knife.
 
-<span id="calibre_link-284" page-number="219"
-page-name="Page:There Is Confusion.djvu/225" page-index="225"
-page-quality="3" title="Page:There_Is_Confusion.djvu/225"></span>"Here
+"Here
 it is, doc. I was just tellin' the lady, ought sure to be able to catch
 that 'sassin; man who sold him the knife's done got his name stamped on
 the handle."
@@ -8063,9 +7443,7 @@ too." She laid her hand on her breast.
 
 "I'm the doctor, Harry Portor, you remember me, don't you?"
 
-<span id="calibre_link-285" page-number="220"
-page-name="Page:There Is Confusion.djvu/226" page-index="226"
-page-quality="3" title="Page:There_Is_Confusion.djvu/226"></span>He
+He
 could see her make an effort. "You're sure Henderson's not here? It
 would make him angry to see you. Peter was here a little while ago—we're
 going to be married, you know. That's why Henderson cut me." Her voice
@@ -8103,26 +7481,19 @@ Sylvia sent Roger up to her room to tell her that Miss Vera—Vera—"I
 forget her other name, Aunt Janna," had called up. She would call again
 the next day.
 
-<span id="calibre_link-286" page-number="221"
-page-name="Page:There Is Confusion.djvu/227" page-index="227"
-page-quality="3" title="Page:There_Is_Confusion.djvu/227"></span>Joanna
+Joanna
 thanked him indifferently. "All right, darling, tell Mamma I'll look out
 for her."
 
 She thought to herself as he pattered down stairs: "Peter and Maggie,
-here in New York<span class="nowrap"> </span><span
-class="nowrap">. . .</span> I won't think of them, I'm not going through
+here in New York . . . I won't think of them, I'm not going through
 all that sick agony again. I believe I'll go South to-morrow."
 
-<span id="calibre_link-287" page-number="222"
-page-name="Page:There Is Confusion.djvu/228" page-index="228"
-page-quality="3" title="Page:There_Is_Confusion.djvu/228"></span>
+
 
 Chapter XXVII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">he</span> day's excitement made Joanna sleep
+The day's excitement made Joanna sleep
 soundly, and in the morning she awoke strongly refreshed and rested. No
 gesture that she could make to Fate would ever restore Peter. She had
 been willing to make the greatest sacrifice of all—to surrender her
@@ -8147,9 +7518,7 @@ get a chance to map out arrangements for the work of the following year.
 Her preference would be one of the less-known, poorly endowed schools
 where there would be lots of work.
 
-<span id="calibre_link-289" page-number="223"
-page-name="Page:There Is Confusion.djvu/229" page-index="229"
-page-quality="3" title="Page:There_Is_Confusion.djvu/229"></span>She lay
+She lay
 there and watched the April sun mounting slowly, slowly up the walls of
 her room. From outside rose the myriad sounds of Harlem; a huckster
 calling unintelligibly, some school children on their way to P. S. 89,
@@ -8182,11 +7551,9 @@ breakfast of rolls and chocolate. Joanna devoured it.
 "No'm. Got lots to worry about. Them white folks where my girl Myrtle
 goes to school act so mean all the time, always discouragin' her.
 'What's the good of you comin' to high school'? they ses. 'What're you
-gonna do when you finish?<span class="calibre35">'</span>"
+gonna do when you finish?'"
 
-<span id="calibre_link-290" page-number="224"
-page-name="Page:There Is Confusion.djvu/230" page-index="230"
-page-quality="3" title="Page:There_Is_Confusion.djvu/230"></span>How
+How
 quickly once she would have rejoined with one of her sweeping platitudes
 which to her were not platitudes because they represented a fresh and
 virile belief: "Don't let her become discouraged, Essie; just have her
@@ -8221,14 +7588,10 @@ green, horribly, fantastically adorned with bright and sticky red.
 
 Together they chose a crêpe silk dress of straight and simple lines. The
 bodice as flaming as the dressing gown was long, like a Russian blouse.
-Its end terminated by <span class="wst-tooltip"
-title="or 'hem-stitching'">hemstitching</span> into a black
+Its end terminated by hemstitching into a black
 shallow-plaited skirt. A narrow rope-like cord confined the waist.
 
-<span id="calibre_link-291" page-number="225"
-page-name="Page:There Is Confusion.djvu/231" page-index="231"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/231"></span>"Stunning," Sylvia said,
+"Stunning," Sylvia said,
 spinning her around. She had designed the dress. "If Brian just wouldn't
 treat me right we'd run away to Paris, Jan, and set up a dressmaking
 establishment. You should be my manikin."
@@ -8245,7 +7608,7 @@ there she's wearing a stone gray suit and a gray hat with a brown, a
 wears it bobbed." Sylvia shuddered.
 
 "Oh well, she's a good sort," Joanna remonstrated, smiling, "and she
-doesn't say 'you people.<span class="calibre35">'</span>"
+doesn't say 'you people.'"
 
 Strange how realization falls short of anticipation. Joanna was about to
 scale the path which led to her highest ambition, but she had no sense
@@ -8263,9 +7626,7 @@ The two were standing looking at each other now, Miss Vera still
 appraisingly. Then the older woman held out her hand. Joanna had
 neglected to do this, having, like most colored people of her class,
 carefully schooled herself in the matter of repression where white
-people were concerned. How<span id="calibre_link-292" page-number="226"
-page-name="Page:There Is Confusion.djvu/232" page-index="232"
-page-quality="3" title="Page:There_Is_Confusion.djvu/232"></span>ever,
+people were concerned. However,
 she took the extended hand and gave it a hearty pressure.
 
 "Yes," said Miss Sharples as though checking up the colored girl's
@@ -8299,10 +7660,7 @@ another England, etc.; we aren't featuring Germany or any of her allies.
 When it came to America we had to have two or three dances represented,
 one for the white element, one for the black and one for the red. Of
 course that made the woman representing America practically a star.
-Well, she's all right as a white American, <span id="calibre_link-293"
-page-number="227" page-name="Page:There Is Confusion.djvu/233"
-page-index="233" page-quality="3"
-title="Page:There_Is_Confusion.djvu/233"></span>or as a red one, but
+Well, she's all right as a white American, or as a red one, but
 when it comes to the colored American, she simply lays down on her job."
 Miss Sharples' eloquence drowned her sense of grammar.
 
@@ -8337,10 +7695,7 @@ I'm dreaming, don't let me wake up."
 
 Down in Greenwich Village on the south side of Washington Square, Joanna
 found Miss Susan's "Board." They were occupying, scattered around, a
-large dilapidated room of mag<span id="calibre_link-294"
-page-number="228" page-name="Page:There Is Confusion.djvu/234"
-page-index="234" page-quality="3"
-title="Page:There_Is_Confusion.djvu/234"></span>nificent proportions and
+large dilapidated room of magnificent proportions and
 they were talking of art, of dancing with an enthusiasm and accuracy, an
 amazing precision such as Joanna had never heard equaled.
 
@@ -8376,10 +7731,7 @@ they were assisting at an affair of national moment. Joanna felt the
 atmosphere enveloping, quickening her. She stepped down from the
 platform.
 
-"Well, now listen. I'm supposed to have a ring of children <span
-id="calibre_link-295" page-number="229"
-page-name="Page:There Is Confusion.djvu/235" page-index="235"
-page-quality="3" title="Page:There_Is_Confusion.djvu/235"></span>around
+"Well, now listen. I'm supposed to have a ring of children around
 me. I sing and they answer. At first I'll have to sing both parts, but
 afterwards you can play their answers. See, this is the way it goes."
 She sat down at the piano, and ran through the melody of "Barn! Barn!"
@@ -8393,10 +7745,10 @@ she flew back to the little platform.
 
 "Now then, you've got it. Ready!
 
-<span class="ws-poem-line1">*"Sissy in the barn! Join in the
-weddin'!"*<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+*"Sissy in the barn! Join in the
+weddin'!"*  
+  
+
 
 Her voice rang out, her slender flaming body turned and twinkled, her
 lovely graceful limbs flashed and darted and pirouetted. She was
@@ -8419,25 +7771,18 @@ bobbed curling locks. Most of them knew the game already, all of them
 took to Joanna and threw themselves with radiant, eager good nature into
 the spirit of what she was trying to display.
 
-The tall dark man, Mr. Hale, came over to her. "You're <span
-id="calibre_link-296" page-number="230"
-page-name="Page:There Is Confusion.djvu/236" page-index="236"
-page-quality="3" title="Page:There_Is_Confusion.djvu/236"></span>all
+The tall dark man, Mr. Hale, came over to her. "You're all
 right, Miss Marshall, if you're willing, we'll try you. America's got
 some foolish prejudices, but we'll try her with a sensation, and you'll
 be all of that. I'll leave you with Miss Sharples and Miss Rosen, our
 secretary, to make final arrangements, while Francis and I go out to see
 what we can do about taking on these kids. I suppose you'll need them."
 
-<span id="calibre_link-297" page-number="231"
-page-name="Page:There Is Confusion.djvu/237" page-index="237"
-page-quality="3" title="Page:There_Is_Confusion.djvu/237"></span>
+
 
 Chapter XXVIII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">he</span> District Line Theater was jammed every
+The District Line Theater was jammed every
 night now. People came from all over New York and all its suburbs to see
 the new dancer—Joanna Marshall. Her success and fame were instant. The
 newspapers featured her, the "colyumists" wrote her up, her face
@@ -8464,10 +7809,7 @@ without any difficulty as an Indian, a wig and grease paint would
 accomplish that. But Joanna could hardly pose as a white American. She
 was too dark.
 
-Sylvia had a suggestion here. "America" was supposed to <span
-id="calibre_link-299" page-number="232"
-page-name="Page:There Is Confusion.djvu/238" page-index="238"
-page-quality="3" title="Page:There_Is_Confusion.djvu/238"></span>come on
+Sylvia had a suggestion here. "America" was supposed to come on
 last as a regal, symbolic figure, but Miss Ashby had paid more attention
 to the dancing than to the symbolism.
 
@@ -8505,10 +7847,7 @@ Joanna found herself becoming a sensation. Through Miss Sharples, who
 was besieged with requests to meet her protégée, she came in contact
 with groups of writers, dramatists, "thinkers," that vast, friendly,
 changing kaleidoscope of New York dwellers who take their mental life
-seriously. Occa<span id="calibre_link-300" page-number="233"
-page-name="Page:There Is Confusion.djvu/239" page-index="239"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/239"></span>sionally, too, she was
+seriously. Occasionally, too, she was
 invited to grace an "occasion," an afternoon at the house of a rich
 society woman. Once at one of these affairs she met Vera Manning, who
 grinned at her impishly and announced to the room that she and Miss
@@ -8523,7 +7862,7 @@ her to go on to tea with her.
 Joanna was perfect: "That's very kind of you, Miss Manning, and I don't
 know but what I will. There are several things I'd like to interest you
 in. When I think of the illimitable power for good which you white
-people possess<span class="calibre36">——</span>—"
+people possess———"
 
 Once outside the door the two girls went off into gusts of
 inextinguishable laughter.
@@ -8547,9 +7886,7 @@ skeleton and herself feverishly trying to cover up its bare bones with
 the garish trappings of her art, her lessons, her practice, her
 press-clippings.
 
-<span id="calibre_link-301" page-number="234"
-page-name="Page:There Is Confusion.djvu/240" page-index="240"
-page-quality="3" title="Page:There_Is_Confusion.djvu/240"></span>Miss
+Miss
 Sharples put her up for membership in a club whose members were mostly
 people that "did" something. And Joanna fell in the habit of taking her
 lunch and frequently her dinner, too, at this club, just to lose herself
@@ -8581,11 +7918,7 @@ trained to care for the company of white men. Between them and herself
 the barrier was too impassable. Besides, it was women who had the real
 difficulties to overcome, disabilities of sex and of tradition.
 
-For a while she was puzzled, a little ashamed when she <span
-id="calibre_link-302" page-number="235"
-page-name="Page:There Is Confusion.djvu/241" page-index="241"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/241"></span>realized that so many of
+For a while she was puzzled, a little ashamed when she realized that so many of
 these women had outstripped her so early; some of them were poor, some
 had responsibilities. There were not many of these last. It was a long
 time before the solution occurred to her and when it did the result was
@@ -8618,10 +7951,7 @@ make any difference to me."
 
 Still that had been a rare encounter. Life on the whole smiled on her.
 Yet she was not happy. But is anybody so? she wondered. She had
-forgotten to sorrow for her break with <span id="calibre_link-303"
-page-number="236" page-name="Page:There Is Confusion.djvu/242"
-page-index="242" page-quality="3"
-title="Page:There_Is_Confusion.djvu/242"></span>Peter, her life was too
+forgotten to sorrow for her break with Peter, her life was too
 full for that, even for a new love. Vera Manning's brother Tom, brought
 into her entourage by the flood of publicity and popularity that
 engulfed her, asked her to marry him. She liked him; found him charming
@@ -8639,15 +7969,11 @@ abruptly. They were driving home from the theater, their nightly custom.
 And Joel, his voice half glad, half sorry, told her that he, too, had
 hoped for something different.
 
-<span id="calibre_link-304" page-number="237"
-page-name="Page:There Is Confusion.djvu/243" page-index="243"
-page-quality="3" title="Page:There_Is_Confusion.djvu/243"></span>
+
 
 Chapter XXIX
 
-<span class="dropinitial"><span
-class="dropinitial-initial">A</span></span><span
-class="wst-uppercase1">t</span> first the war presented itself to Peter
+At first the war presented itself to Peter
 in a purely personal aspect. It was a long time before he envisaged the
 struggle as a great stupendous whole. Boyishly egotistic, he saw it
 simply as the next big moment in the panorama of his life following on
@@ -8674,10 +8000,7 @@ outstretched.
 He could hear his voice ringing even now. And then Philip's contemptuous
 rejoinder: "I don't shake hands with any such damned light of love."
 
-He thought he must have misunderstood at first. But <span
-id="calibre_link-306" page-number="238"
-page-name="Page:There Is Confusion.djvu/244" page-index="244"
-page-quality="3" title="Page:There_Is_Confusion.djvu/244"></span>there
+He thought he must have misunderstood at first. But there
 was the angry scorn in Philip's eyes and there was his hand hanging
 clenched by his side.
 
@@ -8701,8 +8024,7 @@ meant to him.
 The result of the encounter was to drive Peter back on himself and to
 confuse his issues more and more. He did not know which way to turn.
 More than ever if Philip loved Maggie, he himself wanted to be freed of
-his obligation. Freedom—<span class="wst-tooltip"
-title="[sic] 'that'">htat</span> was what he wanted—from obligations,
+his obligation. Freedom—htat was what he wanted—from obligations,
 from prejudice, from too lofty idealism. It seemed to him as though the
 last two years of his life had been spent in struggling to reconcile
 ideals. First his efforts to win Joanna and then his need to get away
@@ -8714,9 +8036,7 @@ Responsibility began feebly to awaken within him. "But what does she see
 in me? Yet she'll die if I leave her. Joanna, you've messed up all our
 lives. Oh, damn all women! I hope to God I get killed in France!"
 
-<span id="calibre_link-307" page-number="239"
-page-name="Page:There Is Confusion.djvu/245" page-index="245"
-page-quality="3" title="Page:There_Is_Confusion.djvu/245"></span>Still
+Still
 in a dream he left Des Moines for Camp Upton and left the camp for
 overseas. He was a good sailor and therefore was free to devote himself
 to men who were less fortunate than himself. On an afternoon he came on
@@ -8748,11 +8068,7 @@ gravely on. He came forward.
 chair. He was the type with whom any physical indisposition goes hard.
 Peter noticed he was shivering.
 
-"Wait, I'll get a rug," he said, starting toward the door. <span
-id="calibre_link-308" page-number="240"
-page-name="Page:There Is Confusion.djvu/246" page-index="246"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/246"></span>Alexander groaned, "Bye,
+"Wait, I'll get a rug," he said, starting toward the door. Alexander groaned, "Bye,
 for God's sake don't leave me. I'm as weak as a cat."
 
 "Oh, you'll be all right," Peter called back, and left him with the
@@ -8789,10 +8105,7 @@ I ask how?"
 
 "I've always known of you indirectly," Peter told him coldly. "My
 great-grandfather spent all his life working for yours—for nothing.
-There was a black Meriwether Bye, my <span id="calibre_link-309"
-page-number="241" page-name="Page:There Is Confusion.djvu/247"
-page-index="247" page-quality="3"
-title="Page:There_Is_Confusion.djvu/247"></span>father, named after him,
+There was a black Meriwether Bye, my father, named after him,
 though I'm sure," he added with rude inconsequence, "I can't imagine
 why."
 
@@ -8828,18 +8141,14 @@ races averaged the same. Some men were bound to be superior.
 
 "And the differences between the races are a matter of relativity," he
 finished. "I confess my own interest in colored people is very keen." He
-raised a fine hand to disparage <span id="calibre_link-310"
-page-number="242" page-name="Page:There Is Confusion.djvu/248"
-page-index="248" page-quality="3"
-title="Page:There_Is_Confusion.djvu/248"></span>Peter's slight movement.
+raised a fine hand to disparage Peter's slight movement.
 "Yes, I know you are sick of that and the patronage it implies. But I
 mean it, Bye, and when you get back home you must go out to Bryn Mawr
 and see whether or not I have tried to express that interest."
 
 "I should think," Peter looked at him squarely, "all things considered,
 you or your family would have shown some interest in us black Byes. You
-are rich men, your family is a powerful one<span
-class="calibre36">——</span>—"
+are rich men, your family is a powerful one———"
 
 "Was a powerful one," Meriwether interrupted him. He had flushed a
 little. "I suppose you know that my great-grandfather, Aaron Bye, had
@@ -8864,10 +8173,7 @@ away from England to escape religious persecution. He came over and
 received a grant of land. But he could have done nothing without labor,
 and free labor at that. He and a friend bought a wretched slave between
 them, worked a bit of land, then that old Bye bought out the other man's
-share of the slave; presently he bought <span id="calibre_link-311"
-page-number="243" page-name="Page:There Is Confusion.djvu/249"
-page-index="249" page-quality="3"
-title="Page:There_Is_Confusion.djvu/249"></span>a woman. Ah, it's a
+share of the slave; presently he bought a woman. Ah, it's a
 rotten story." Peter saw melancholy like a veil settle upon his finely
 drawn features.
 
@@ -8903,10 +8209,7 @@ with a woman like that.
 To Peter's surprise Meriwether was a fatalist. He had strong
 premonitions and allowed himself to be guided by them. "From the
 outset," he told Peter, gravely, "I knew that you meant something to me.
-That was why I used to watch you <span id="calibre_link-312"
-page-number="244" page-name="Page:There Is Confusion.djvu/250"
-page-index="250" page-quality="3"
-title="Page:There_Is_Confusion.djvu/250"></span>so closely. I used to
+That was why I used to watch you so closely. I used to
 wonder and speculate about you. Something in you made me think of
 myself. It was as though you, all unrelated even racially, represented
 something which might have been a part of myself, as though you," he
@@ -8926,7 +8229,7 @@ from his pocket in which were the pictures of a man and
 woman,—old-fashioned pictures.
 
 "Your father," Peter exclaimed involuntarily, "you can see he's a
-Bye<span class="calibre36">——</span>—"
+Bye———"
 
 "And my mother," Meriwether finished. He drew a locket suspended on a
 thin gold chain from around his neck. "And take this to Mrs. Lea. She
@@ -8939,10 +8242,7 @@ know that he thought of her. But he had nothing to leave for her. Yes,
 there was the Testament. He took it from his inside breast-pocket and
 showed it to Meriwether. Indeed he looked at it closely for the first
 time himself. The two heads so like yet so different bent over the old
-faded script. On the top of the page in a <span id="calibre_link-313"
-page-number="245" page-name="Page:There Is Confusion.djvu/251"
-page-index="251" page-quality="3"
-title="Page:There_Is_Confusion.djvu/251"></span>beautiful clear hand was
+faded script. On the top of the page in a beautiful clear hand was
 written Aaron Bye, then underneath in crazy drunken letters, Judy Bye.
 
 "I can't guess who she was," said Peter.
@@ -8978,10 +8278,7 @@ oppressed. So that a white boy raised on all sorts of high falutin
 idealism finds himself when he grows up completely at sea. I confess,
 Bye, when I came to realize that all my wealth and all the combination
 of environment and position which has made life hitherto so beautiful
-and perfect, were founded quite spe<span id="calibre_link-314"
-page-number="246" page-name="Page:There Is Confusion.djvu/252"
-page-index="252" page-quality="3"
-title="Page:There_Is_Confusion.djvu/252"></span>cifically on the backs
+and perfect, were founded quite specifically on the backs
 of broken, beaten slaves, I got a shock from which I think sometimes
 I'll never recover. It's robbed me of happiness forever."
 
@@ -9007,15 +8304,11 @@ war as the greatest gesture the world has ever made for Freedom. If I
 can give up my life in this cause I shall feel that I have paid my
 debt."
 
-<span id="calibre_link-315" page-number="247"
-page-name="Page:There Is Confusion.djvu/253" page-index="253"
-page-quality="3" title="Page:There_Is_Confusion.djvu/253"></span>
+
 
 Chapter XXX
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">he</span> interminable voyage was over and Peter
+The interminable voyage was over and Peter
 debarked to spend still more interminable days at Brest. Dr. Meriwether
 Bye left immediately for La Courtine, where Peter later caught sight of
 him once more on his way to the front. The somewhat exalted mood to
@@ -9040,10 +8333,7 @@ known. All about were people, people, too many people, French and
 Americans. And finally the relations between the two nations, allies
 though they were, developed from misunderstandings into hot irritations,
 from irritations into clashes. First white Americans and Frenchmen
-clashed; separate restaurants and <span id="calibre_link-317"
-page-number="248" page-name="Page:There Is Confusion.djvu/254"
-page-index="254" page-quality="3"
-title="Page:There_Is_Confusion.djvu/254"></span>accommodations had to be
+clashed; separate restaurants and accommodations had to be
 arranged. Then came the inevitable clash between white and colored
 Americans; petty jealousies and meannesses arose over the courtesies of
 Frenchwomen and the lack of discrimination in the French cafés. The
@@ -9077,11 +8367,7 @@ your 'grand white' friend do to you?"
 
 "Oh, you shut up!" Peter barked at him.
 
-His real depression, however, dated back to the time im<span
-id="calibre_link-318" page-number="249"
-page-name="Page:There Is Confusion.djvu/255" page-index="255"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/255"></span>mediately after his
+His real depression, however, dated back to the time immediately after his
 company had left Brest. The awful condition of things in the seaport
 town was general rather than specific, and for the first time since
 Peter had entered the war he was feeling comparatively calm. His long
@@ -9116,11 +8402,7 @@ getting ready to come, each with a French dame in tow."
 ladies. I can't get along with the domestic brand and I know I'll be out
 of luck with the foreign ones."
 
-Some passing thought wiped the joy of anticipation from <span
-id="calibre_link-319" page-number="250"
-page-name="Page:There Is Confusion.djvu/256" page-index="256"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/256"></span>Harley's face. "My
+Some passing thought wiped the joy of anticipation from Harley's face. "My
 experience is that these foreign ones are a damn sight less foolish than
 some domestic ones I've met. Well, me for the concert."
 
@@ -9157,9 +8439,7 @@ other men on the ridge of a hill under fire. The other fellows told
 stories and swapped confidences. But he stayed unmoved through it all,
 impervious alike to the danger and the good man-talk going on about him.
 
-<span id="calibre_link-320" page-number="251"
-page-name="Page:There Is Confusion.djvu/257" page-index="257"
-page-quality="3" title="Page:There_Is_Confusion.djvu/257"></span>When
+When
 the call came for a reconnoitering party, he was one of the first to
 step forward. He went out that night into the blackness, the hellishness
 of No Man's Land. He saw a dark figure rise in front of him, heard a
@@ -9191,10 +8471,7 @@ saw, was approaching. His arm hurt unmercifully. He had never known such
 pain. He raised himself on his one arm, and felt around with his foot.
 Yes, there was a body, he prayed it might not be the German. Crawling
 forward he plunged his hand into blood, a depthless pool of sticky
-blood. Sickened, he drew back and dried it, wiping it <span
-id="calibre_link-321" page-number="252"
-page-name="Page:There Is Confusion.djvu/258" page-index="258"
-page-quality="3" title="Page:There_Is_Confusion.djvu/258"></span>on his
+blood. Sickened, he drew back and dried it, wiping it on his
 coat. More cautiously, then, he reached out again, searching for the
 face, yes, that was Meriwether's nose. Those canny finger-tips of his
 recognized the facial structure. His hand came back to Meriwether's
@@ -9227,9 +8504,7 @@ blood had begun to spurt again and Meriwether stirred. Peter whispered:
 "Bye, for God's sake, speak to me. This is Peter, Peter Bye, you
 remember?"
 
-<span id="calibre_link-322" page-number="253"
-page-name="Page:There Is Confusion.djvu/259" page-index="259"
-page-quality="3" title="Page:There_Is_Confusion.djvu/259"></span>The
+The
 young doctor repeated the name thickly. "Yes, Peter. I know. I'm dying."
 
 "Not yet. Man, it's almost day, they'll come to us. Pull yourself
@@ -9260,15 +8535,11 @@ a well above Meriwether's heart.
 war, but none ever give me the turn I got seein' that smoke's hair
 dabblin' in the other fellow's blood."
 
-<span id="calibre_link-323" page-number="254"
-page-name="Page:There Is Confusion.djvu/260" page-index="260"
-page-quality="3" title="Page:There_Is_Confusion.djvu/260"></span>
+
 
 Chapter XXXI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">C</span></span><span
-class="wst-uppercase1">hambery</span>, the capital of Savoy, a town
+Chambery, the capital of Savoy, a town
 situated toward the south of the extreme east of France, has not always
 been as well known to America as its more important neighbors, Grenoble
 and Lyons. Up to a few years ago it was celebrated chiefly because it
@@ -9293,9 +8564,7 @@ from her encounter with Neal followed only too surely, but for another
 reason. The flesh wound itself had been negligible and she might have
 recovered without the nervous breakdown, had not Mr. Simpson in an agony
 of remorse at the danger to which he had so unwittingly exposed her,
-subjected her again with <span id="calibre_link-325" page-number="255"
-page-name="Page:There Is Confusion.djvu/261" page-index="261"
-page-quality="3" title="Page:There_Is_Confusion.djvu/261"></span>equally
+subjected her again with equally
 complete unconscious thoroughness to another shock. He was always
 presenting her with flowers, magazines, and journals, his eyes silently
 beseeching her forgiveness. For Maggie had never betrayed his share in
@@ -9310,7 +8579,7 @@ front sheet. A tiny paragraph leaped at her from the bottom of a column.
 "Negro Leaps In Front Of Subway Train."
 
 "A Negro, later identified as Henderson Neal, was killed instantly this
-afternoon<span class="calibre36">——</span>—"
+afternoon———"
 
 They found it hard to quiet her. "I killed him," she moaned to Harry
 Portor, hastily summoned. "His death is as much due to me as though I
@@ -9331,10 +8600,7 @@ this. The situation was too complex for him to handle.
 It was her first cry of penitence, and as she lay there day after day
 reviewing her life she came to understand and to analyze for what it was
 that quality of hers, that tendency to climb to the position she wanted
-over the needs and claims of <span id="calibre_link-326"
-page-number="256" page-name="Page:There Is Confusion.djvu/262"
-page-index="262" page-quality="3"
-title="Page:There_Is_Confusion.djvu/262"></span>others. Now that she had
+over the needs and claims of others. Now that she had
 no strength, now that life stretched around her a dreary procession of
 sullen, useless days, she realized the beauty inherent in life itself,
 the miracle of health and sane nerves, of the ability to make a living,
@@ -9366,10 +8632,7 @@ herself.
 
 "If I could find something which would make me forget everything that is
 past, Harry," she told the young doctor. He had fallen into the habit of
-taking her on his rounds two <span id="calibre_link-327"
-page-number="257" page-name="Page:There Is Confusion.djvu/263"
-page-index="263" page-quality="3"
-title="Page:There_Is_Confusion.djvu/263"></span>and three times a week.
+taking her on his rounds two and three times a week.
 The air did her good and the occasion gave him a chance to study her.
 
 "It will turn up, the right thing always does," he comforted her. "You
@@ -9409,9 +8672,7 @@ you've quite decided to let—to break with this Bye fellow?"
 
 "You were right at first. To let him go. Yes."
 
-<span id="calibre_link-328" page-number="258"
-page-name="Page:There Is Confusion.djvu/264" page-index="264"
-page-quality="3" title="Page:There_Is_Confusion.djvu/264"></span>"H'm,
+"H'm,
 what do you suppose he'll do then, go back to this other girl?"
 
 "It sounds so funny to hear you talk of her that way, so slightingly,
@@ -9448,10 +8709,7 @@ needed. Did she think she could go?
 "Me," Maggie breathed, "go to France! To help the poor boys! Oh, I'd
 love it, John."
 
-It was the thing for her. Of course, its accomplishment <span
-id="calibre_link-329" page-number="259"
-page-name="Page:There Is Confusion.djvu/265" page-index="265"
-page-quality="3" title="Page:There_Is_Confusion.djvu/265"></span>took
+It was the thing for her. Of course, its accomplishment took
 time and much handling of red tape, but it did come to pass and Maggie,
 leaving behind her an apprehensive mother and cousin—for the day of
 submarines was not yet over—set sail for France. She landed at Brest,
@@ -9482,10 +8740,7 @@ she had ever witnessed. It was as though they said to hostile forces:
 cheat us, betray us, but you can't kill the real life within us, the
 essential us. You may make us distrustful, incredulous, disillusioned,
 but you can't make us despair or corrode us with bitterness. Call us
-children if you like, but in spite of every<span id="calibre_link-330"
-page-number="260" page-name="Page:There Is Confusion.djvu/266"
-page-index="266" page-quality="3"
-title="Page:There_Is_Confusion.djvu/266"></span>thing, life *is* worth
+children if you like, but in spite of everything, life *is* worth
 living, and we mean to live it to the full."
 
 So many impressions, so many happenings crowded in on Maggie during
@@ -9523,10 +8778,7 @@ month at the most, I expect to return to the front again."
 He looked at her in surprise. "Dread it? My goodness, no. I think I
 prefer war to ordinary living. It is so quick and decisive. Of course,
 there are some tiresome delays. We were held up for six weeks at Brest
-and the transportation <span id="calibre_link-331" page-number="261"
-page-name="Page:There Is Confusion.djvu/267" page-index="267"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/267"></span>overseas was very slow.
+and the transportation overseas was very slow.
 But I didn't care, I made a fine friend on account of it. I wish I'd met
 him sooner." He didn't tell her the name. That, he thought morosely,
 would only start her off again on his social standing. "He was killed,"
@@ -9558,10 +8810,7 @@ Shops. First-class ones. Of her ability to make a good living she had no
 doubt. And she would gather about her, friends, simple kindly people
 whom she liked for themselves: who would seek her company with no
 thought of patronage. She would stand on her two feet, Maggie Ellersley,
-serene, independent, self-reliant. The idea <span id="calibre_link-332"
-page-number="262" page-name="Page:There Is Confusion.djvu/268"
-page-index="268" page-quality="3"
-title="Page:There_Is_Confusion.djvu/268"></span>exalted her and she went
+serene, independent, self-reliant. The idea exalted her and she went
 about her work the picture of optimism and happiness.
 
 The boys called her "Sunlight." They all liked her and she was kind to
@@ -9577,15 +8826,11 @@ At sunset it stood out boldly and Maggie, looking at it daily at that
 hour, came to regard it as a sort of luminous symbol of faith. "Oh, God,
 you have brought me peace; perhaps some day I shall know happiness."
 
-<span id="calibre_link-333" page-number="263"
-page-name="Page:There Is Confusion.djvu/269" page-index="269"
-page-quality="3" title="Page:There_Is_Confusion.djvu/269"></span>
+
 
 Chapter XXXII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span
-class="wst-uppercase1">nto</span> the midst of her new-found content
+Into the midst of her new-found content
 came Philip. At first she could hardly believe it. She supposed vaguely
 that he had enlisted but she was and had been out of touch so long with
 the Marshall family that she knew nothing definite of his movements. It
@@ -9609,10 +8854,7 @@ the hospital too soon. Maggie, her old love mingled with a new
 tenderness awakening in her, spent as much time with him as she dared.
 She did not want him to be ill, but she adored his weakness, it gave her
 her first chance to wait on him, to mother him, to pay back, instead of
-always taking, <span id="calibre_link-335" page-number="264"
-page-name="Page:There Is Confusion.djvu/270" page-index="270"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/270"></span>something of what the
+always taking, something of what the
 Marshall family had brought into her life.
 
 He said to her one day seated in the little parkway, "Why did you leave
@@ -9649,10 +8891,7 @@ So that was what Joanna had meant so long ago. Strange how time
 dissolves mysteries. Strange how, after deciding to take life as one
 finds it, life comes fawning to one's hand.
 
-Several days elapsed before another talk could be managed. <span
-id="calibre_link-336" page-number="265"
-page-name="Page:There Is Confusion.djvu/271" page-index="271"
-page-quality="3" title="Page:There_Is_Confusion.djvu/271"></span>Then
+Several days elapsed before another talk could be managed. Then
 they met in front of the *Statue des Eléphants*. Philip, examining that
 marvel with meticulous care, asked her indirectly about Peter.
 
@@ -9687,10 +8926,7 @@ girls mention seeing the two of you together and I concluded it was an
 affair of long standing. To ease myself, to put you completely out of my
 mind, I plunged into this public work; I wouldn't even mention your
 name. And the first thing I knew you had left Neal and were engaged to
-Bye. I couldn't understand that, Maggie, since you had <span
-id="calibre_link-337" page-number="266"
-page-name="Page:There Is Confusion.djvu/272" page-index="272"
-page-quality="3" title="Page:There_Is_Confusion.djvu/272"></span>grown
+Bye. I couldn't understand that, Maggie, since you had grown
 up with Joanna and Peter, but that's all over now. I cursed Bye out at
 Des Moines, I remember."
 
@@ -9726,10 +8962,7 @@ I looked at it as a life work ready and cut out for a man, for me, and I
 rushed rather joyously into it to do battle. Now as I look back, I think
 I realize for the first time what this awful business of color in
 America does to a man, what it has done for me. If we weren't so
-per<span id="calibre_link-338" page-number="267"
-page-name="Page:There Is Confusion.djvu/273" page-index="273"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/273"></span>sistently persecuted and
+persistently persecuted and
 harassed that we can think, breathe, do nothing but consider our great
 obsession, you and I might have been happy long ago. I'd have done as
 most men of other races do, settled my own life and then launched on
@@ -9761,10 +8994,7 @@ best is a grand corrective.
 personal consideration and I have learned unselfishness—to a degree. It
 is not too late for us to be happy—together, Philip."
 
-"How we complement each other," he mused. His eye fell <span
-id="calibre_link-339" page-number="268"
-page-name="Page:There Is Confusion.djvu/274" page-index="274"
-page-quality="3" title="Page:There_Is_Confusion.djvu/274"></span>on his
+"How we complement each other," he mused. His eye fell on his
 wasted hand. "Ah, but, Maggie, it is too late. Everything is too late."
 
 On the last day of his stay she came to him. "You love me, Philip?" He
@@ -9779,7 +9009,7 @@ desire of all for sheer decency—fell from her, "then I'll be your
 mistress, Philip. For no matter where you go I'll find you and stay with
 you, you'll never be able to send me away from you. You'll make me the
 by-word of all New York but I won't care, Philip, for I love you. Oh,
-Philip, Philip<span class="calibre36">——</span>—"
+Philip, Philip———"
 
 They were in the chapel of the old Dukes of Savoy and the ancient
 caretaker, having stayed away the length of time which Philip's
@@ -9793,15 +9023,11 @@ She looked at him starry-eyed. "You don't seem so weak, Philip."
 Outside, the cross on Nivrolet, a luminous symbol of faith, pointed
 steadfastly to heaven.
 
-<span id="calibre_link-340" page-number="269"
-page-name="Page:There Is Confusion.djvu/275" page-index="275"
-page-quality="3" title="Page:There_Is_Confusion.djvu/275"></span>
+
 
 Chapter XXXIII
 
-<span class="dropinitial"><span
-class="dropinitial-initial">T</span></span><span
-class="wst-uppercase1">he</span> War was over, the men were coming home.
+The War was over, the men were coming home.
 All Harlem was delirious with excitement. Everything conceivable must be
 done for "the boys," for those boys who having fought a double battle in
 France, one with Germany and one with white America, had yet
@@ -9826,9 +9052,7 @@ willingness to do something for these brave men. But later, there was
 another reason; something happened which led her to expect to see Peter
 at any moment, at any turn. She met Vera Manning.
 
-<span id="calibre_link-342" page-number="270"
-page-name="Page:There Is Confusion.djvu/276" page-index="276"
-page-quality="3" title="Page:There_Is_Confusion.djvu/276"></span>"Vera,
+"Vera,
 you imp! Telling those people that you had gone to school with me to
 learn democracy; I nearly died! Where've you been this long while? How
 wonderful you look! And how different!"
@@ -9840,16 +9064,14 @@ soldiers in Arkansas because they'd worn their uniforms in the street?
 Well, it made me sick, it made me think of—of Harley. So I rushed to a
 newspaper, Barney Kirchner is the manager—wasn't he one of Philip's
 friends? And I told them: 'I'm colored, see, but nobody would guess it;
-send me down there. See if I can't get a line on those people.<span
-class="calibre35">'</span>"
+send me down there. See if I can't get a line on those people.'"
 
 "Mercy," said Joanna, "what an idea!"
 
 "And they sent me. And, oh, Joanna, it was wonderful to see how our
 folks, those colored people, trusted me and shielded me when they found
 I was one of them. And those white bullies, thinking I was one of
-*them*, told me the most <span class="wst-tooltip"
-title="or 'bloodcurdling'">blood-curdling</span>, most fiendish tales. I
+*them*, told me the most blood-curdling, most fiendish tales. I
 really got an investigation started. Mr. Kirchner has taken it up. Oh,
 Joanna, I'm glad I'm colored—there's something terrible, terrible about
 white people."
@@ -9863,9 +9085,7 @@ I hated myself so for having spent all those foolish months, years even,
 away from my own folks when I might have been consecrated to them,
 serving them, helping them, healing them. You can't understand just how
 I feel, Janna dear. You've always had a definite something before you to
-make out of <span id="calibre_link-343" page-number="271"
-page-name="Page:There Is Confusion.djvu/277" page-index="277"
-page-quality="3" title="Page:There_Is_Confusion.djvu/277"></span>your
+make out of your
 life. I tell you I feel as though I had found a new heaven and a new
 earth."
 
@@ -9899,9 +9119,7 @@ excitement, but it was worth it. I'm going to play the same game
 somewhere else, just as soon as I can. Do you know, I'm—I'm almost glad
 that I am forced to devote the rest of my life to it."
 
-<span id="calibre_link-344" page-number="272"
-page-name="Page:There Is Confusion.djvu/278" page-index="278"
-page-quality="3" title="Page:There_Is_Confusion.djvu/278"></span>"Forced
+"Forced
 to devote your life to it," Joanna repeated, bewildered. "Why, what do
 you mean?"
 
@@ -9936,10 +9154,7 @@ know it?"
 
 "Peter told me, of course. I've seen him. He's the most perfect darling
 in his uniform! You ought to hear him raving about France, but silent as
-the tomb about the War. He says <span id="calibre_link-345"
-page-number="273" page-name="Page:There Is Confusion.djvu/279"
-page-index="279" page-quality="3"
-title="Page:There_Is_Confusion.djvu/279"></span>the colored soldiers
+the tomb about the War. He says the colored soldiers
 were all sold—fighting for freedom was a farce so far as they were
 concerned. But France is all right if the white Americans don't get in
 too much propaganda. I've been meaning to write to you, to tell you
@@ -9973,9 +9188,7 @@ between life and death. Even if I should lose my life in Georgia or in
 one of those other terrible places where they lynch women, too, I'll
 save it, won't I? I must go. Kiss me good-by, dear Janna."
 
-<span id="calibre_link-346" page-number="274"
-page-name="Page:There Is Confusion.djvu/280" page-index="280"
-page-quality="3" title="Page:There_Is_Confusion.djvu/280"></span>She was
+She was
 off in a moment in her pretty, modish costume, leaving Joanna in a maze
 of pity and tenderness for her friend, and of sick bewilderment for
 herself.
@@ -10009,11 +9222,7 @@ butterfly, had turned the trick, had used her one specialty, her absence
 of color, to the advantage of her people. But she—of course it did mean
 something to prove to a skeptical world the artistry of a too little
 understood people—but she could do that only in New York. After the
-season closed here she was to have a brief showing in Boston, in <span
-id="calibre_link-347" page-number="275"
-page-name="Page:There Is Confusion.djvu/281" page-index="281"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/281"></span>Philadelphia and in
+season closed here she was to have a brief showing in Boston, in Philadelphia and in
 Chicago. Even there, as here, she would have to appear in independent
 theaters. The big theatrical trusts refused her absolutely—one had even
 said frankly: "We'll try a colored man in a white company but we won't
@@ -10038,15 +9247,11 @@ This, this, was her great success. She loved and hated it. But she would
 not have been human if she had not wished for Peter to see her in her
 triumph, empty though it might prove to be.
 
-<span id="calibre_link-348" page-number="276"
-page-name="Page:There Is Confusion.djvu/282" page-index="282"
-page-quality="3" title="Page:There_Is_Confusion.djvu/282"></span>
+
 
 Chapter XXXIV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">P</span></span><span
-class="wst-uppercase1">eter</span> had seen her. His first free hours in
+Peter had seen her. His first free hours in
 New York were spent sitting segregated in the portion of the balcony set
 apart for colored people, watching Joanna in the "Dance of the Nations."
 And the result, of course, was to make her seem farther than ever out of
@@ -10073,10 +9278,7 @@ office. He thought it best to consult Harry Portor about this. The
 latter in his own office greeted him, he thought, none too cordially,
 ignored his hand.
 
-<span id="calibre_link-350" page-number="277"
-page-name="Page:There Is Confusion.djvu/283" page-index="283"
-page-quality="3"
-title="Page:There_Is_Confusion.djvu/283"></span>"Thought I'd look you
+"Thought I'd look you
 up, Portor. Gee, what enthusiasm! Nice greeting to give a fellow who's
 just been making your home safe for democracy."
 
@@ -10084,7 +9286,7 @@ just been making your home safe for democracy."
 business but I happen to be interested. What are you going to do about
 Maggie Ellersley?"
 
-"Wha-at! Well I'll be<span class="calibre36">——</span>—" Had he been in
+"Wha-at! Well I'll be———" Had he been in
 her train, too? Was this why she had given him his freedom? His face
 clouded.
 
@@ -10092,7 +9294,7 @@ clouded.
 horn in on this?"
 
 "Well, if you've got to know. I'm, I'm deeply interested in Miss Joanna
-Marshall and—and<span class="calibre36">——</span>—"
+Marshall and—and———"
 
 "Hold on, I thought you were speaking of Miss Ellersley." Their
 politeness was wonderful.
@@ -10120,10 +9322,7 @@ loves you, and I want you to make her happy, or else get out of the way
 and let me try to do it." And he told Peter how Joanna, thinking him
 guilty, had yet declared herself Maggie's assailant.
 
-Peter's natural surprise at Neal's attack on Maggie vanished <span
-id="calibre_link-351" page-number="278"
-page-name="Page:There Is Confusion.djvu/284" page-index="284"
-page-quality="3" title="Page:There_Is_Confusion.djvu/284"></span>into
+Peter's natural surprise at Neal's attack on Maggie vanished into
 stupefied amazement at the news of Joanna's generosity. "She did that
 for me? Joanna?"
 
@@ -10150,7 +9349,7 @@ if you want to see my Aunt Joanna. She might not be at home."
 "Yes, that's what I was afraid of. See here, son, I knew your Aunt
 Joanna before you were born, and I'd like to surprise her. I've just got
 back from France. Understand, Buddy? I've got a German helmet around to
-my house<span class="calibre36">——</span>—"
+my house———"
 
 "Well," said Roger, shamelessly, "you go right up those stairs; 's that
 helmet got a plume on it?"
@@ -10158,24 +9357,18 @@ helmet got a plume on it?"
 Joanna had been singing Tschaikowsky's "Longing." Now she was sitting
 still reading the words over and over:
 
-<span class="ws-poem-line1">*Nur wer die Sehnsucht kennt,*<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">*Weiss was ich leide,*<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1"><span
-class="nowrap">. . . . . . . . . . . . . . . . . . . . . . . . . . .</span><span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">*Ach! der mich liebt und
-kennt—*<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+*Nur wer die Sehnsucht kennt,*  
+*Weiss was ich leide,*  
+. . . . . . . . . . . . . . . . . . . . . . . . . . .  
+*Ach! der mich liebt und
+kennt—*  
+  
+
 
 She mused over the last line: "Peter, I'm afraid you never really knew
 me or loved me."
 
-<span id="calibre_link-352" page-number="279"
-page-name="Page:There Is Confusion.djvu/285" page-index="285"
-page-quality="3" title="Page:There_Is_Confusion.djvu/285"></span>He
+He
 called to her softly from the door of the studio, "Joanna". She turned
 swiftly on the stool and saw him.
 
@@ -10199,15 +9392,11 @@ happiness which flooded the very atmosphere about them. Almost as though
 she were taking a deep sea bath in bliss.
 
 "I used to think," she told him, "even if Peter does come back, we never
-can
+can 'recapture  
+that first fine careless
+rapture.'"  
+  
 
-<span class="ws-poem-line1"><span
-class="ws-poem-indent1">       </span>['recapture](https://en.wikisource.org/wiki/Home_Thoughts,_From_Abroad "Home Thoughts, From Abroad")<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">that first fine careless
-rapture.<span class="calibre35">'</span>"<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
 
 "I don't think we have, dear," he told her wistfully, "for with this
 happiness is the memory of that awful bitterness that lay between us.
@@ -10216,13 +9405,11 @@ There was nothing like this that first time."
 He persuaded her to go to Philadelphia, to Bryn Mawr in fact. "I've got
 to give these pictures and the locket to Dr. Meriwether Bye and to Mrs.
 Lea. I'm so sorry for them. To think we're alive and have each
-other<span class="calibre36">——</span>—"
+other———"
 
 "And their Meriwether is dead. Oh, Peter, if it had been you!"
 
-<span id="calibre_link-353" page-number="280"
-page-name="Page:There Is Confusion.djvu/286" page-index="286"
-page-quality="3" title="Page:There_Is_Confusion.djvu/286"></span>"Yet I
+"Yet I
 used to long for death, Joanna. I used to wish I'd get done in at the
 Front. Did you pray for me?"
 
@@ -10260,9 +9447,7 @@ Bye. Gave me the funniest look. 'Why,' he said, 'you'se the spit of both
 families!' Funny, isn't it, Joanna; those two families, the black and
 the white Byes, lived so long together that they developed similar
 characteristics, like husbands and wives, you know. And they say white
-<span id="calibre_link-354" page-number="281"
-page-name="Page:There Is Confusion.djvu/287" page-index="287"
-page-quality="3" title="Page:There_Is_Confusion.djvu/287"></span>and
+and
 colored people are fathoms apart! Even I noticed that Meriwether Bye and
 I were built alike. I'm afraid we weren't much alike spiritually. Well,
 here's where we hop off again. I'm afraid I'll be longer this time. Mind
@@ -10288,7 +9473,7 @@ know what she said?"
 
 "I gave her the locket, and she said with the tears streaming down her
 face, 'To think that the Lord would let Meriwether Bye be killed and
-would let his nigger live!<span class="calibre35">'</span>"
+would let his nigger live!'"
 
 Joanna fell back against the red plush seat. "She didn't, she couldn't!"
 
@@ -10296,18 +9481,15 @@ Joanna fell back against the red plush seat. "She didn't, she couldn't!"
 he said.' And I did, all I could remember. He had said to me one day, 'I
 love her and she loves me,' and I told her that and she leaned back and
 moaned—moaned, Janna. I wanted to pick her up in my arms and comfort
-her, and if I had, do you know what would have happened to me<span
-class="calibre36">——</span>—"
+her, and if I had, do you know what would have happened to me———"
 
 "Don't, Peter."
 
 "Well, this is Pennsylvania, so probably I'd have got off with
 imprisonment, here, but if it had been in Georgia, and I'd have dared to
-touch her<span class="calibre36">——</span>—"
+touch her———"
 
-<span id="calibre_link-355" page-number="282"
-page-name="Page:There Is Confusion.djvu/288" page-index="288"
-page-quality="3" title="Page:There_Is_Confusion.djvu/288"></span>She put
+She put
 her hand over his mouth, "Peter, you shan't say it."
 
 "Darling, all the time I was there I was thinking: 'Suppose this were
@@ -10341,19 +9523,15 @@ us, Bye,' he used to say, 'there're plenty of white men to help you. You
 don't know it; for one thing, you've shut your mind to us. Oh, you're
 not to blame, lots of us aren't to be trusted; most of us, I'm afraid.
 But we're ignorant and incredulous. Show us what manhood means,
-Bye.<span class="calibre35">'</span>"
+Bye.'"
 
 "He must have been wonderful, indeed, Peter."
 
 "Yes. And yet the queerest chap. You know I told you he had made up his
-mind to die. That was the difference between <span id="calibre_link-356"
-page-number="283" page-name="Page:There Is Confusion.djvu/289"
-page-index="289" page-quality="3"
-title="Page:There_Is_Confusion.djvu/289"></span>us. I wanted to, but he
+mind to die. That was the difference between us. I wanted to, but he
 had made up his mind to it. And he told me: 'I knew as soon as I saw you
 on the ship that my job was finished, but you would have to carry on.
-You'll have to finish up my life, Peter.<span
-class="calibre35">'</span>"
+You'll have to finish up my life, Peter.'"
 
 Joanna felt tears in her eyes.
 
@@ -10384,9 +9562,7 @@ Peter, we have a pattern to guide us out of the confusion. When you left
 me for Maggie, I used to lie awake at night and think of all the sweet
 things I might have said to you. Oh, if you've suffered half as much as
 I have, you've suffered horribly. I learned that nothing in the world is
-worth as much <span id="calibre_link-357" page-number="284"
-page-name="Page:There Is Confusion.djvu/290" page-index="290"
-page-quality="3" title="Page:There_Is_Confusion.djvu/290"></span>as
+worth as much as
 love. For people like us, people who can and must suffer—*Love* is our
 refuge and strength."
 
@@ -10404,53 +9580,42 @@ from him this morning. He's made his pile and he wants to leave the
 country. But his sister can't and won't stand the idea of taking up a
 new life with strange people and a new language. 'Why should I give up
 my country?' she wails. 'It *is* my country even if my skin is
-black?<span class="calibre35">'</span>"
+black?'"
 
-<span class="calibre35">"</span>'*Entbehren, sollst du,*<span
-class="calibre35">'</span>" Joanna quoted softly. "If you're black in
+"'*Entbehren, sollst du,*'" Joanna quoted softly. "If you're black in
 America, you have to renounce. But that's life, too, Peter. You've got
 to renounce something—always."
 
 "Yes, you do. Unless, like Meriwether, you renounce life itself. Of
 course, that is the great burden of being colored in this day. You've
 got to make the ordinary renunciations which life demands, and you've
-got to make those involved in the clash of color<span
-class="nowrap">. . . .</span>
+got to make those involved in the clash of color. . . .
 
-"I'm afraid you'll have to give up your career, dear Joanna<span
-class="calibre36">——</span>—"
+"I'm afraid you'll have to give up your career, dear Joanna———"
 
 "Of course, of course, I know it."
 
-"For, if there should be children, I want, Oh, Joanna, I hope<span
-class="calibre36">——</span>—"
+"For, if there should be children, I want, Oh, Joanna, I hope———"
 
 "You want them to be different from both you and me, Peter."
 
-<span id="calibre_link-358" page-number="285"
-page-name="Page:There Is Confusion.djvu/291" page-index="291"
-page-quality="3" title="Page:There_Is_Confusion.djvu/291"></span>"Not so
+"Not so
 different from you. You were always so brave, so plucky. But, Joanna, if
 they are like me they'll have so much to fight, and they'll need you to
 help them."
 
 "We can do anything together, Peter."
 
-"And, Joanna, of course you know we will be poor at first<span
-class="calibre36">——</span>—"
+"And, Joanna, of course you know we will be poor at first———"
 
 She broke out crying then. "Oh, Peter, you won't ever say again that I'm
 different from Sylvia."
 
-<span id="calibre_link-359" page-number="286"
-page-name="Page:There Is Confusion.djvu/292" page-index="292"
-page-quality="3" title="Page:There_Is_Confusion.djvu/292"></span>
+
 
 Chapter XXXV
 
-<span class="dropinitial"><span
-class="dropinitial-initial">M</span></span><span
-class="wst-uppercase1">aggie</span> and Philip had returned from the
+Maggie and Philip had returned from the
 sanitarium to New York, but Philip undoubtedly was dying. Peter and
 Harry Portor were at his bedside every day, but not because of their
 ability to help him. They were simply three friends together. Philip
@@ -10475,9 +9640,7 @@ She went to see him in the late October weather. On the way she had
 passed Morningside Park and the gorgeous autumn sights and colors had
 brought back to her in a sudden heady rush the memories of the old
 days,—partings with Peter, concert tours and meetings with Philip,
-talks, dreams, ambitions, <span id="calibre_link-361" page-number="287"
-page-name="Page:There Is Confusion.djvu/293" page-index="293"
-page-quality="3" title="Page:There_Is_Confusion.djvu/293"></span>all the
+talks, dreams, ambitions, all the
 activities of her assured, confident, determined youth. If she might
 only relive a few brief scenes—the night she had dismissed Peter, the
 time she had spent in writing that cruel letter to Maggie—how different
@@ -10511,10 +9674,7 @@ have moved any more quickly. In those days I was so taken up with the
 business of being colored! After I'd adjusted that I thought I'd arrange
 my life. Ah, Joanna, that's our great mistake. We must learn to look out
 for life first, then color and limitations. My being colored didn't make
-me forget to provide myself with food <span id="calibre_link-362"
-page-number="288" page-name="Page:There Is Confusion.djvu/294"
-page-index="294" page-quality="3"
-title="Page:There_Is_Confusion.djvu/294"></span>and raiment. I shouldn't
+me forget to provide myself with food and raiment. I shouldn't
 have allowed it to make me forget love." His grasp on her hand
 tightened.
 
@@ -10553,10 +9713,7 @@ satisfied."
 
 Sylvia raised an eyebrow. "Satisfied and Philip dead?"
 
-"Yes, because so easily he might have died without their <span
-id="calibre_link-363" page-number="289"
-page-name="Page:There Is Confusion.djvu/295" page-index="295"
-page-quality="3" title="Page:There_Is_Confusion.djvu/295"></span>ever
+"Yes, because so easily he might have died without their ever
 having come together. But they did. Oh, Sylvia, you and Brian have had
 such a simple, easy, jog-trot time of it, you don't know what it means
 to have your life all broken up like Maggie's and mine have been, and
@@ -10571,15 +9728,11 @@ She said to Joel who, she knew, admired her ability: "See if you can't
 make me as great a success in business as you've been." They spent many
 pleasant hours in consultation.
 
-<span id="calibre_link-364" page-number="290"
-page-name="Page:There Is Confusion.djvu/296" page-index="296"
-page-quality="3" title="Page:There_Is_Confusion.djvu/296"></span>
+
 
 Chapter XXXVI
 
-<span class="dropinitial"><span
-class="dropinitial-initial">J</span></span><span
-class="wst-uppercase1">oanna</span> and Peter married and Peter came at
+Joanna and Peter married and Peter came at
 Joel's insistent request to live in the One Hundred and Thirty-eighth
 Street house. It was marvelous to see how the two old people renewed
 themselves in the youth of their children. Joel was as proud of Peter as
@@ -10606,10 +9759,7 @@ life. Realizing how nearly she had lost the essentials in grasping after
 the trimmings of existence, she experienced a deep, almost holy joy in
 the routine of the day. To see about her, her husband and parents,
 little Meriwether usually in Joel's arms, gave her, she confessed almost
-shamefacedly to Sylvia, "thoughts that lay too deep for <span
-id="calibre_link-366" page-number="291"
-page-name="Page:There Is Confusion.djvu/297" page-index="297"
-page-quality="3" title="Page:There_Is_Confusion.djvu/297"></span>tears."
+shamefacedly to Sylvia, "thoughts that lay too deep for tears."
 She rarely regretted leaving the stage and although she sang sometimes
 in churches and concerts and once even went on a brief tour, she almost
 never danced except in the ordinary way.
@@ -10625,23 +9775,18 @@ The change in Peter was more fundamental than that in Joanna. She at
 least had always had these possibilities of domesticity. Her desire for
 greatness had been a sort of superimposed structure which, having been
 taken off, left her her true self. It was as though her life had
-expanded on the plan of Holmes' admonition to [the Chambered
-Nautilus](https://en.wikisource.org/wiki/The_Chambered_Nautilus "The Chambered Nautilus"):
+expanded on the plan of Holmes' admonition to the Chambered
+Nautilus:
 
-<span class="ws-poem-line1">Leave thy low vaulted Past—<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Let each new temple,<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Nobler than the last,<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Shut thee from Heaven<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">With a dome more vast<span
-class="ws-poem-break">  
-</span></span><span class="ws-poem-line1">Till thou at length art
-free,—<span class="ws-poem-break">  
-</span></span><span class="ws-poem-break">  
-</span>
+Leave thy low vaulted Past—  
+Let each new temple,  
+Nobler than the last,  
+Shut thee from Heaven  
+With a dome more vast  
+Till thou at length art
+free,—  
+  
+
 
 Joanna was free.
 
@@ -10652,10 +9797,7 @@ to maintain such a relationship, but indeed he had to decide what sort
 of relationship was worth maintaining. At his father's death and during
 his young manhood he had been absolutely without a notion of the
 responsibilities which the most average man expects to take upon
-himself. He looked back with a real shame and chagrin <span
-id="calibre_link-367" page-number="292"
-page-name="Page:There Is Confusion.djvu/298" page-index="298"
-page-quality="3" title="Page:There_Is_Confusion.djvu/298"></span>to the
+himself. He looked back with a real shame and chagrin to the
 many favors which he had accepted without question from his Aunt Susan.
 
 Joanna, clever Joanna, helped him here. She was not only naturally
@@ -10689,10 +9831,7 @@ Mawr, Peter decided that the old gentleman wished to spare himself the
 pain of learning more of the circumstances surrounding his grandson's
 death.
 
-Sylvia's boy, Roger, captivated by his new soldier-uncle, <span
-id="calibre_link-368" page-number="293"
-page-name="Page:There Is Confusion.djvu/299" page-index="299"
-page-quality="3" title="Page:There_Is_Confusion.djvu/299"></span>spent
+Sylvia's boy, Roger, captivated by his new soldier-uncle, spent
 most of his time at Peter's house serving in the purely impressionistic
 capacity of office-boy. He came up to the sitting room one summer
 morning bearing a bit of cardboard between his fingers.
@@ -10728,10 +9867,7 @@ grandson. And you were with Meriwether at the end. Tell me about it."
 
 Very solemnly, almost pityingly, Peter began the recital of his brief,
 dream-like acquaintance with Meriwether Bye. "He had quite made up his
-mind beforehand that he was going <span id="calibre_link-369"
-page-number="294" page-name="Page:There Is Confusion.djvu/300"
-page-index="300" page-quality="3"
-title="Page:There_Is_Confusion.djvu/300"></span>to die. Perhaps you
+mind beforehand that he was going to die. Perhaps you
 knew. So, I'm sure he was quite reconciled to it; I don't think you need
 grieve for him. And at the very end I was with him. It turned out that
 we had been fighting just a few yards apart. I think I eased him a
@@ -10767,10 +9903,7 @@ him spend his life in Paris and Vienna. Perhaps he would be a doctor,
 too. When he became a man he could do as he pleased. And probably,
 probably, I say, I should make him my heir."
 
-Neither Joanna nor Peter had ever thought of wealth. And <span
-id="calibre_link-370" page-number="295"
-page-name="Page:There Is Confusion.djvu/301" page-index="301"
-page-quality="3" title="Page:There_Is_Confusion.djvu/301"></span>while
+Neither Joanna nor Peter had ever thought of wealth. And while
 neither of them envisaged for a second the possibility of parting from
 little Meriwether, they were momentarily stunned at such prospects,
 Joanna especially.
@@ -10795,8 +9928,7 @@ future—perhaps she saw this, who knows?"
 "My father," said Peter in a dangerously level voice, "told me and told
 me often that much of Aaron Bye's prosperity had been due to the loyalty
 and hard work of Joshua Bye. But he never told me that Aaron was his
-father. And you knew this, have known it<span
-class="calibre36">——</span>—"
+father. And you knew this, have known it———"
 
 "Not while Isaiah and I were boys. Not for many, many years afterwards.
 My father," the word seemed strange on this old man's lips, "always
@@ -10805,10 +9937,7 @@ it off and finally just before his death he told my brother Elmer—his
 oldest son by his real wife you know—told him about it. But Elmer was
 all out of sympathy with the idea, and, although he did not tell my
 father so, had no notion of acquainting Joshua either with his real
-parentage or with the fact that he should have <span
-id="calibre_link-371" page-number="296"
-page-name="Page:There Is Confusion.djvu/302" page-index="302"
-page-quality="3" title="Page:There_Is_Confusion.djvu/302"></span>been
+parentage or with the fact that he should have been
 one of Aaron Bye's heirs. Elmer was one of those men with a sharp
 dislike, amounting to an obsession, almost, for Negroes, for all
 unfortunate people. I'm free from it personally."
@@ -10825,11 +9954,10 @@ wounds. Besides, I did not know what had become of Isaiah's son. Isaiah
 and Joshua were both dead. I could not see that my father had acted
 differently from other slave-holders—it was the custom of the
 country—and at least he did not do as many a white man had done, sell
-his son into deeper and more terrible slavery<span
-class="nowrap">. . . .</span> I can see now that whatever slavery may
+his son into deeper and more terrible slavery. . . . I can see now that whatever slavery may
 have done for other men it has thrown the lives of all the Byes into
 confusion. Think of the farce my father's religion must have become to
-him<span class="nowrap"> </span><span class="nowrap">. . .</span> and I
+him . . . and I
 shall never forget Elmer. Sometimes I think the shadow of it fell across
 Meriwether's life—I meant to tell him. I know he would have made
 restitution. Now I shall do it for him."
@@ -10844,9 +9972,7 @@ world that you were doing it because little Meriwether was your blood
 relation—no matter how distant—or would this be the gift of an eccentric
 philanthropist?"
 
-<span id="calibre_link-372" page-number="297"
-page-name="Page:There Is Confusion.djvu/303" page-index="303"
-page-quality="3" title="Page:There_Is_Confusion.djvu/303"></span>The old
+The old
 man's face grew a dull red. "Surely it would not be necessary—think of
 my father. What good would it do the boy to know that Aaron Bye's blood
 flowed in his veins?"
