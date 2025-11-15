@@ -1,9 +1,0 @@
-<?xml version="1.0" encoding="utf-8"?>
-<se-lint-ignore>
-	<file path="chapter-7.xhtml">
-		<ignore>
-			<code>s-046</code>
-			<reason>There is a quotation that combines spoken word and song that requires a dropped-line effect.</reason>
-		</ignore>
-	</file>
-</se-lint-ignore>

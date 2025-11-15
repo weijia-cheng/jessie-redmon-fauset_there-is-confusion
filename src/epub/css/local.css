@@ -118,10 +118,6 @@ p span.i8{
 	padding-left: 9em;
 	text-indent: -1em;
 }
-
-.dl2 span:first-child{
-	vertical-align: 100%;
-}
 /* End verse */
 
 /* Begin letters */
